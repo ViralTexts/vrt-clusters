@@ -1,9 +1,9 @@
 
-# Wilmington - White Government Union Constitution.md
+# Wilmington_-_White_Government_Union_Constitution
 
 ### 36 reprints from 1898-07-31 to 1900-05-18
 
-## Wilmington - White Government Union Constitution.md
+## Wilmington_-_White_Government_Union_Constitution
 
 #### From unknown source
 
@@ -11,77 +11,77 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
- Wilmington White Government Union Constitution  
+**Wilmington - White Government Union Constitution**  
   
-G Ward from Image to Text  
+G. Ward (from Image to Text)  
   
-CONSTITUTION AND BY LAWS  
+CONSTITUTION AND BY-LAWS  
   
 OF THE  
   
-WHITE GOVERNMENT UNION  
+WHITE GOVERNMENT UNION.  
   
-1898  
+1898\.  
   
-EDWARDS BROUGHTON PRINTERS AND BINDERS RALEIGH  
+EDWARDS &amp; BROUGHTON. PRINTERS AND BINDERS, RALEIGH  
   
-PREFACE  
+PREFACE.  
   
-Our State is the only community in the world with a majority of white  
-voters where the officers selected to administer the Government are the  
-choice of negroes and not of the whites  
+Our State is the only community in the world, with a majority of white  
+voters, where the officers selected to administer the Government are the  
+choice of negroes, and not of the whites.  
   
 This condition has been brought about by an unfortunate division among  
-the white people and it is likely to continue until that division is  
-removed and unity again prevails among them as it did prior to 1892  
+the white people; and it is likely to continue until that division is  
+removed, and unity again prevails among them as it did prior to 1892.  
   
 The necessity for a closer union of the white people of the State is so  
-apparent that it requires no argument and that necessity has called  
-forth the organization of THE WHITE GOVERNMENT UNION  
+apparent that it requires no argument, and that necessity has called  
+forth the organization of THE WHITE GOVERNMENT UNION.  
   
 THE  
   
-WHITE GOVERNMENT UNION  
-CONSTITUTION  
+WHITE GOVERNMENT UNION.\
+CONSTITUTION.  
   
-ARTICLE I  
+ARTICLE I.  
   
-The name of the organization shall be THE WHITE GOVERNMENT UNION  
+The name of the organization shall be THE WHITE GOVERNMENT UNION.  
   
-ARTICLE II  
+ARTICLE II.  
   
-The purpose of the Organization shall be to re establish in North  
-Carolina the SUPREMACY of the WHITE RACE to promote individual effort  
-in behalf of the party and its candidates on the part of the voters and  
+The purpose of the Organization shall be to re-establish in North  
+Carolina the SUPREMACY of the WHITE RACE; to promote individual effort  
+in behalf of the party and its candidates on the part of the voters, and  
 to bring the head of the organization in the counties and State more  
-closely and easily in touch with the Township Organizations and the  
-individual party voter  
+closely and easily in touch with the Township Organizations, and the  
+individual party voter.  
   
-ARTICLE III  
+ARTICLE III.  
   
-Neither Oaths Grips Signs nor Passwords shall be allowed  
+Neither Oaths, Grips, Signs, nor Passwords shall be allowed.  
   
-Any Union may if it so desires adopt a badge button insignia or  
-uniform  
+Any Union may, if it so desires, adopt a badge, button, insignia, or  
+uniform.  
   
-ARTICLE IV  
+ARTICLE IV.  
   
 The organization shall be divided into County Unions and Township  
-Unions  
+Unions.  
   
-ARTICLE V  
+ARTICLE V.  
   
-Every WHITE MAN who desires WHITE GOVERNMENT in North Carolina and is  
+Every WHITE MAN who desires WHITE GOVERNMENT in North Carolina, and is  
 willing to use every practicable and honorable means to restore WHITE  
-SUPREMACY therein and who proposes to support candidates pledged to  
-effect that purpose in the ensuing election shall be eligible to  
-membership of the Township Union  
+SUPREMACY therein, and who proposes to support candidates pledged to  
+effect that purpose, in the ensuing election, shall be eligible to  
+membership of the Township Union.  
   
-ARTICLE VI  
+ARTICLE VI.  
   
 The County Union shall be composed exclusively of the chairmen of the  
-several Township Unions and the Chairman of the Democratic Executive  
-Committee of the county who shall preside over its meetings  
+several Township Unions, and the Chairman of the Democratic Executive  
+Committee of the county, who shall preside over its meetings.  
   
 Present Membership 1s
 </td></tr></table>
@@ -115,6 +115,8 @@ Present Membership 1s
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+people of the whole State.  
+The need is a thorough organization  
 of white men. To the end of securing  
 such organization plans have been per­  
 fected for the organization of ‘‘The  
@@ -145,7 +147,7 @@ In the preface to the plan of organiza­
 tion. prepared by Hon. F. M. Simmons,  
 chairman of the Democratic State Ex
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_ford_ver02%2Fdata%2Fsn85042104%2F00332892137%2F1898073101%2F0250.jp2/pct:20.464378,47.219149,14.566563,14.287822/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_ford_ver02%2Fdata%2Fsn85042104%2F00332892137%2F1898073101%2F0250.jp2/pct:20.464378,46.260235,14.566563,15.246736/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -189,8 +191,6 @@ Union
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the white men will order them to the  
-kitchen or to sit on the back fence.  
 We have at hand &quot;Constitution and  
 By-Laws of the White Government  
 Union 1S93.&quot; The preface written, we  
@@ -382,17 +382,6 @@ George N. Curzon, tho parliamentar
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-them as stepping stones to the pie  
-counter. Therefore, they cannot be  
-depended upon in bringing about the  
-desired relorm. Hence the necessity  
-for the white voters, who constitute  
-the majority, to come together as  
-loyal sons and remoye the heel of  
-  
-the despoiler from the prostrate body J  
-of our dear old State  
-To this end, plans have been per  
 fected for the organization of White  
 Government Unions throughout the  
 State, the objects of which are thus  
@@ -421,12 +410,9 @@ ensuing election, shall be eligible to
 membership of the township union.&quot;  
 In the preface to the plan of organ­  
 ization, prepared by Hon. F. M.  
-Simmons, chairman of the Demo­  
-carat ic State Executive Committee,  
-the necessity for the organization of  
-these unions is thus set forth
+Simmons, chairman of the Demo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_frankenbatch_ver01%2Fdata%2Fsn92073232%2F00295879737%2F1898081101%2F0586.jp2/pct:19.363395,14.975550,11.096375,22.261614/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_frankenbatch_ver01%2Fdata%2Fsn92073232%2F00295879737%2F1898081101%2F0586.jp2/pct:19.363395,20.721271,10.860595,14.853301/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -482,7 +468,12 @@ In his letter to Chairmen of Coun
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+r counties in the State. The white  
+people are becoming aroused. They see  
+that unless they exert tnoniselves the  
+ruling gang will carry the State lower i  
+and lower till it will not be a tit abode for  
+decent and respectable people.  
 There opght to be a thorough reorgani­  
 zation of the white voters in every  
 county in the State, and it was to effect,  
@@ -530,7 +521,7 @@ Chairman of the Democratic Executive
 Committee of the county, who shall pre­  
 side over its meetings
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_ford_ver02%2Fdata%2Fsn85042104%2F00332892137%2F1898081701%2F0374.jp2/pct:5.655778,32.559767,14.507828,23.078057/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_ford_ver02%2Fdata%2Fsn85042104%2F00332892137%2F1898081701%2F0374.jp2/pct:5.655778,29.620216,14.513246,26.017608/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -549,19 +540,9 @@ ment in North Carolina and is willing
 to use every practicable and honorable  
 means to restore w hite supremacy there­  
 in and who proposes to support candi­  
-dates pledged to effect that purpose is  
-eligible to membership. There will be  
-no grips, signs or pass words in these  
-bodies. North Carolina has had enough  
-of that sort of thing lately. &quot;Rut tin­  
-work will be operated above board, not  
-by secret committees but in the daylight  
-and by an appeal to the honor, character  
-and highest aspirations of the people.  
-“No man’s Democracy will be ques­  
-tioned who stays out of these clubs, bu
+dates pledged to effect that purpose i
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_ford_ver02%2Fdata%2Fsn85042104%2F00332892137%2F1898082301%2F0418.jp2/pct:20.271223,30.101722,14.298888,8.427895/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_ford_ver02%2Fdata%2Fsn85042104%2F00332892137%2F1898082301%2F0418.jp2/pct:20.271223,30.101722,14.271766,3.451948/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -597,9 +578,6 @@ The Revolutionary Tories
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-government upon the ijeople.  
-This matter is in the bands of the  
-white people, who are in the major!  
 tv. As has been stated, our State is  
 the only community in the world,  
 with a majority of white voters,  
@@ -608,7 +586,7 @@ ister the Government are the choice
 of negroes, and not of the whites  
 Shall th&#x27;s odd and humiliating fac
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_frankenbatch_ver01%2Fdata%2Fsn92073232%2F00295879737%2F1898091501%2F0606.jp2/pct:29.935180,71.193975,10.901591,5.753797/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_frankenbatch_ver01%2Fdata%2Fsn92073232%2F00295879737%2F1898091501%2F0606.jp2/pct:29.935180,72.959625,10.901591,3.988147/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -721,10 +699,9 @@ county, who shall preside over its meet
 the world with a majority of &quot;white  
 voters where It is seriously proposed  
 to take the*control of the public affairs  
-of the State out of the hands of the  
-white peoplo. and commit them to a,po
+of the State out of the hands of th
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_darwin_ver01%2Fdata%2FSN85038614%2F00100480189%2F1900022301%2F0445.jp2/pct:28.990720,47.714169,13.220728,2.600156/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_darwin_ver01%2Fdata%2FSN85038614%2F00100480189%2F1900022301%2F0445.jp2/pct:28.990720,47.714169,13.220728,2.090540/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -736,7 +713,17 @@ white peoplo. and commit them to a,po
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+e con­  
+tinued co-operation :of the white people  
+I of the State for self-protection is .shown  
+I by. the fact that -the party which■ *o ie­  
+[ cently negroized the State, and &#x27;which  
+for this and its other short-comings was  
+| hurled from power in 1898, is; again se-  
+I riously asking the people .to restore It  
+to the control of the State, and actually  
+! indulges the hope that, :with the aid&quot; of  
+J120.000 negro votes .solidly: cast&#x27; for It, It  
 I may succeed in regaining control of the  
 I government.&#x27; . &quot;-&#x27;■ - . &#x27;• &#x27;  
 I &quot;The purpose of • the organization sha.ll  
@@ -759,7 +746,7 @@ I &quot;Every white ■&quot;&#x27;man who : desires - white
 ! willing ■; to use . every.: practicable and&#x27;  
 | honorable ;means to restore ~and pernia
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_darwin_ver01%2Fdata%2FSN85038614%2F00100480189%2F1900022301%2F0445.jp2/pct:28.594516,59.524607,13.642999,9.437191/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_darwin_ver01%2Fdata%2FSN85038614%2F00100480189%2F1900022301%2F0445.jp2/pct:28.594516,54.830190,13.642999,14.131607/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -902,9 +889,6 @@ The Fourteenth section of the p!
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-amendment.  
-Chairman Simmons is also sending to  
-the various County Chairmen the Con­  
 stitution and by-laws for the white  
 supremacy clubs, lb- says he expi-cts by  
 the middle of .lime to sec at least 2. 0O0  
@@ -914,10 +898,9 @@ State is t he only community in the world
 with a majority of white voters when- it  
 is seriously proposed to take control of  
 the public affairs of the State out of the  
-white people and commit them to a  
-political combination composed chiefly o
+white people and commit them to 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_haw_ver01%2Fdata%2Fsn91068402%2F00295878691%2F1900030801%2F0471.jp2/pct:18.718310,22.379359,10.774648,5.808054/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_haw_ver01%2Fdata%2Fsn91068402%2F00295878691%2F1900030801%2F0471.jp2/pct:18.732394,23.512901,10.760563,4.253482/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1021,9 +1004,15 @@ tion.
 the world with a majority of white voters  
 where it is seriously proposed to take  
 the control of the public affairs oT the  
-State out of the hands of the white peo
+State out of the hands of the white peo­  
+ple and commit them to a political com­  
+bination. composed chiefly of negroes  
+and dominated almost entirely by negro  
+influence.”  
+By united effort of the good white peo­  
+ple of the State, irrespective of party, i
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_griffin_ver01%2Fdata%2Fsn85042104%2F00332892009%2F1900051601%2F0366.jp2/pct:4.547844,61.151870,14.253417,5.404926/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_griffin_ver01%2Fdata%2Fsn85042104%2F00332892009%2F1900051601%2F0366.jp2/pct:4.521556,61.151870,14.279706,8.403332/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1048,14 +1037,9 @@ the world with a majority of white
 voters where It is seriously proposed  
 to take tho control of the public af?  
 fairs out of the hands of the white  
-people and commit them to a political  
-combination, composed chiefly of ne?  
-groes, and dominated almost entirely  
-by ne&#x27;gro Influence.&#x27;  
-&quot;By united effort of the good white  
-people of the State, Irrespective of par
+people and commit them to a politica
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_hazel_ver01%2Fdata%2Fsn86071779%2F00175031455%2F1900051701%2F0289.jp2/pct:1.957552,59.871017,16.402225,9.283858/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_hazel_ver01%2Fdata%2Fsn86071779%2F00175031455%2F1900051701%2F0289.jp2/pct:1.957552,59.871017,16.402225,6.747521/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

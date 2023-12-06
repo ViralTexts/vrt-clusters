@@ -1,9 +1,9 @@
 
-# Honea Path - Fiend Lynched.md
+# Honea_Path_-_Fiend_Lynched
 
-### 22 reprints from 1911-10-11 to 1911-10-19
+### 19 reprints from 1911-10-11 to 1911-10-19
 
-## Honea Path - Fiend Lynched.md
+## Honea_Path_-_Fiend_Lynched
 
 #### From unknown source
 
@@ -11,113 +11,112 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
+*FIEND LYNCHED**  
   
-FIEND LYNCHED  
+**The Brutal Assault on a Young Girl at Honea Path Avenged.**  
   
-The Brutal Assault on a Young Girl at Honea Path Avenged  
+**BRUTE HUNG AND SHOT**  
   
-BRUTE HUNG AND SHOT  
+**Taken From Officers After Exciting Chase Through Several Counties, the  
+Fiend was Taken to the Scene of His Crime, Hung and Riddled With  
+Bullets.**  
   
-Taken From Officers After Exciting Chase Through Several Counties the  
-Fiend was Taken to the Scene of His Crime Hung and Riddled With  
-Bullets  
+A negro boy, about seventeen years old, committed a criminal assault on  
+a twelve year old white girl at Honea Path on Tuesday morning. The  
+brutal assault occurred about half-past seven o\&#x27;clock some three  
+hundred yards from the limits of town, where the little girl had gone to  
+put a cow in a pasture.  
   
-A negro boy about seventeen years old committed a criminal assault on  
-a twelve year old white girl at Honea Path on Tuesday morning The  
-brutal assault occurred about half past seven o clock some three  
-hundred yards from the limits of town where the little girl had gone to  
-put a cow in a pasture  
-  
-According to the little girl she was attacked from the rear while she  
-was going to a pasture with cows the attack being made within three  
-hundred yards of the incorporated limits of Honea Path and dragging his  
-little victim about seventy five yards into a patch of woods he  
-accomplished his dastardly purpose behind a dead log The little girl  
-emerged from the woods attracted the attention of a passerby and gave  
-the alarm  
+According to the little girl, she was attacked from the rear, while she  
+was going to a pasture with cows, the attack being made within three  
+hundred yards of the incorporated limits of Honea Path, and dragging his  
+little victim about seventy-five yards into a patch of woods he  
+accomplished his dastardly purpose behind a dead log. The little girl  
+emerged from the woods, attracted the attention of a passerby and gave  
+the alarm.  
   
 The negro then passed through the town to a butcher shop where he  
-worked He was found later at the shop by Constable Haynes who took him  
-before the girl and after she had positively identified him the  
-constable with two other citizens hurried the negro to the jail at  
-Anderson in an automobile the infuriated citizens were searching the  
+worked. He was found later at the shop by Constable Haynes, who took him  
+before the girl, and after she had positively identified him, the  
+constable, with two other citizens, hurried the negro to the jail at  
+Anderson in an automobile. the infuriated citizens were searching the  
 woods during the while and did not learn that the negro had been  
-apprehended until he was on his way to the jail  
+apprehended until he was on his way to the jail.  
   
 As soon as the dastardly outrage became known the people of Honea Path  
-gathered and began a rigid search as above stated for the fiend As soon  
-as it was learned that the negro had been caught and taken to Anderson  
-a crowd left Honea Path for that place bent on lynching the fiend if  
-trey could get him in their hands  
+gathered and began a rigid search as above stated for the fiend. As soon  
+as it was learned that the negro had been caught and taken to Anderson,  
+a crowd left Honea Path for that place, bent on lynching the fiend if  
+trey could get him in their hands.  
   
 A dispatch from Anderson says more than a hundred heavily armed men  
-arrived there at eleven o clock from Honea Path Some came on trolley  
-cars others on the train and the remainder in automobiles Fifteen  
+arrived there at eleven o\&#x27;clock from Honea Path. Some came on trolley  
+cars, others on the train, and the remainder in automobiles. Fifteen  
 minutes before the crowd arrived at Anderson the negrohad been taken in  
-a fast automobile and was speeding to the Greenville jail thirty six  
-miles away  
+a fast automobile and was speeding to the Greenville jail, thirty six  
+miles away.  
   
-The Honea Path citizens followed in pursuit They left Anderson in about  
-ten automobiles The men with the prisoner arrived in Greenville at ten  
-minutes to two o clock The car they left in was a fast one but when  
-it departed from Anderson it had no chains on the wheels It had been  
-raining all night and the roads were muddy heavy and slippery  
+The Honea Path citizens followed in pursuit. They left Anderson in about  
+ten automobiles. The men with the prisoner arrived in Greenville at ten  
+minutes to two o\&#x27;clock. The car they left in was a fast one, but when  
+it departed from Anderson it had no chains on the wheels. It had been  
+raining all night and the roads were muddy, heavy and slippery.  
   
-At 1 50 o clock the Anderson automobile dashed through the streets of  
-Greenville and up to the county jail door At the jail the sheriff had  
-received a telephone message from Sheriff King at Anderson to spirit  
-the negro off to Spartanburg A change of automobiles was made at the  
-jail and the flight to Spartanburg taken up  
+At 1:50 o\&#x27;clock the Anderson automobile dashed through the streets of  
+Greenville and up to the county jail door. At the jail the sheriff had  
+received a telephone message from Sheriff King, at Anderson to spirit  
+the negro off to Spartanburg. A change of automobiles was made at the  
+jail and the flight to Spartanburg taken up.  
   
-Within ten minutes after the automobile bearing the negro had departed  
-a big Anderson touring car containing Josh Ashley and four other men  
-steamed through Main street Citizen Josh clutched a Winchester  
-rifle in his hands and eagerly inquired where the negro had been taken  
-Upon being told that the party had proceeded to Spartanburg the word of  
-command was given and the big auto dashed on up the street  
+Within ten minutes after the automobile bearing the negro had departed,  
+a big Anderson touring car, containing Josh Ashley and four other men,  
+steamed through Main street. \&quot;Citizen\&quot; Josh clutched a Winchester  
+rifle in his hands and eagerly inquired where the negro had been taken.  
+Upon being told that the party had proceeded to Spartanburg, the word of  
+command was given and the big auto dashed on up the street.  
   
-Within five minutes another Anderson car steamed into the city closely  
-followed by still another machine The mud bespattered occupants upon  
+Within five minutes another Anderson car steamed into the city, closely  
+followed by still another machine. The mud-bespattered occupants, upon  
 being readily informed by Greenville citizens which way the negro had  
-carried applied the power to their machines and dashed on At  
-Greenville the pursuers divided some going one road and some another  
+carried, applied the power to their machines and dashed on. At  
+Greenville the pursuers divided, some going one road and some another.  
   
-In the depths of a forest six miles north of Greenville an armed mob of  
-twenty five men headed by Citizen Josh Ashley of Honea Path a  
-member of Anderson County s legislative delegation overpowered Deputy  
-Sheriff Van B Martin of Anderson County and Sheriff J Perry Poole of  
-Greenville County and took the fiend from their custody  
+In the depths of a forest six miles north of Greenville, an armed mob of  
+twenty-five men, headed by \&quot;Citizen\&quot; Josh Ashley, of Honea Path, a  
+member of Anderson County\&#x27;s legislative delegation overpowered Deputy  
+Sheriff Van B. Martin, of Anderson County and Sheriff J. Perry Poole, of  
+Greenville County, and took the fiend from their custody.  
   
 The trembling negro was placed in the car in which Ashley and four other  
 men rode and followed by a train of several automobiles from Anderson  
-and Greenville counties loaded with determined men and bristling with  
-shotguns and rifles the ringleaders turned in their fury and started  
-toward Honea Path Promises were made the sheriffs that the negro would  
-be carried back to the scene of his crime and the older heads of the  
-town consulted as to what should be done with him  
+and Greenville counties, loaded with determined men and bristling with  
+shotguns and rifles, the ringleaders turned in their fury and started  
+toward Honea Path. Promises were made the sheriffs that the negro would  
+be carried back to the scene of his crime and the \&quot;older heads\&quot; of the  
+town consulted as to what should be done with him.  
   
 The negro was carried to the identical spot where the crime was  
 committed and from there was taken to the nearest telephone pole and  
-swung up by one foot Four hundred shots as near as can be estimated  
-were fired into his body Winchester rifles magazine pistols revolvers  
-and shotguns being the weapons of death used Thus ended one of the most  
-sensational man chases that section of the State has ever known  
+swung up by one foot. Four hundred shots, as near as can be estimated  
+were fired into his body. Winchester rifles, magazine pistols, revolvers  
+and shotguns being the weapons of death used. Thus ended one of the most  
+sensational man chases that section of the State has ever known.  
   
 Three negro men were carried before the little girl who lived with her  
-stepmother She identified the last one Willis Jackson as the fiend  
-who had attacked her She said she was sure that neither of the first two  
-was the brute but she readily recognized the third one and the  
+stepmother. She identified the last one, Willis Jackson, as the fiend  
+who had attacked her.She said she was sure that neither of the first two  
+was the brute, but she readily recognized the third one, and the  
 universal opinion is that the negro who committed the outrage was the  
-one hung and shot to death at Honea Path Tuesday night several hours  
-after the commission of the awful crime  
+one hung and shot to death at Honea Path Tuesday night, several hours  
+after the commission of the awful crime.  
   
-The little girl is in a critical condition She was badly bruised  
-terribly lacerated and was greatly shocked She displayed an unusual  
-amount of nerve however in looking at the three negroes brought before  
-her for identification The father of the lass is engaged in the lumber  
-business in Southwest Georgia and was away from home at the time The  
-mother of the little girl is dead having been accidentally shot by her  
-husband some years ago
+The little girl is in a critical condition. She was badly bruised,  
+terribly lacerated and was greatly shocked. She displayed an unusual  
+amount of nerve, however, in looking at the three negroes brought before  
+her for identification. The father of the lass is engaged in the lumber  
+business in Southwest Georgia, and was away from home at the time. The  
+mother of the little girl is dead, having been accidentally shot by her  
+husband some years ago.
 </td></tr></table>
 
 ---
@@ -144,33 +143,6 @@ used.
 Old Soldier Had Money But State Sup
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_fennel_ver02%2Fdata%2Fsn84026488%2F00279558753%2F1911101101%2F0378.jp2/pct:44.303543,22.802033,12.021940,9.707685/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _Keowee courier._](https://chroniclingamerica.loc.gov/lccn/sn84026912/1911-10-11/ed-1/seq-1)
-
-#### 1911-10-11 &middot; [Pickens Court House, S.C.](http://dbpedia.org/resource/Pickens%2C_South_Carolina)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
-the negro&#x27;s body dangling from the  
-pole. Vive thousand people, lt ls es­  
-timated, witnessed tho lynching.  
-Josh Ashley at Head of Crowd,  
-In the depths of a forest six miles  
-north of Grenville an armed mob of  
-twenty-five men. headed by &quot;Citizen&quot;  
-Josh Ashley, of Hones Path, a mom­  
-bo r of Anderson county&#x27;s legislative  
-delegation, overpowered Deputy She­  
-riff Van B. Martin, of Anderson coun­  
-ty, and Sheriff J, Perry Poole, of  
-Greenville county, yesterday
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_imanidevore_ver02%2Fdata%2Fsn84026912%2F0029455869A%2F1911101101%2F0733.jp2/pct:49.302958,87.660023,15.601269,7.421812/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -377,29 +349,9 @@ tical spot where the crime was com­
 mitted and from there was taken to  
 the nearest telephone pole and swung  
 up by one foot. Four hundred shots,  
-as near as can be estimated were  
-  
--BRYAN DARES TAFT  
-COMMONER CHALLENGES . THE  
-. ^&quot;?RESIDENT TO PUBLISH  
-M4 _,_  
-The Names of the Men on &quot;Whose Re­  
-commendation He Appointed Su­  
-preme Court v Judges.  
-In editorial appearing in The  
-Commoner this week Mr. 3ryan chal­  
-lenges President Taft to make public  
-the written and verbal recommenda­  
-tions on which he appointed Justice  
-White to the .position of chief justice  
-over Justice Harlan and recommen­  
-dations, written and verbai, on which  
-he appointed the juftticet. whom he  
-bas placed on the supreme bench.  
-The editorial says in part:  
-&quot;At Cherryville, Kan., the presi
+as near as can be estimated were
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_gnomiemoore_ver01%2Fdata%2Fsn86063756%2F00294558834%2F1911101201%2F0340.jp2/pct:1.235167,8.255417,28.894283,89.663105/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_gnomiemoore_ver01%2Fdata%2Fsn86063756%2F00294558834%2F1911101201%2F0340.jp2/pct:1.235167,8.255417,15.420712,89.663105/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -545,49 +497,12 @@ guns being the weapons of death used
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
-Mob Forcibly Takes Prisoner.  
-Greenville, Oct. 20.-In the depths  
-of a forest, six miles north of Green­  
-ville, headed by &quot;Citizen&quot; Josh Ash­  
-ley, of Honea Path, a member of An­  
-derson county&#x27;s legislative delegation,  
-overpowered Deputy Sheriff Van B.  
-Martin, of Andersoh
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.205595,24.883063,16.061975,5.853028/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The herald and news._](https://chroniclingamerica.loc.gov/lccn/sn86063758/1911-10-13/ed-1/seq-3)
-
-#### 1911-10-13 &middot; [Newberry S.C.](http://dbpedia.org/resource/Newberry%2C_South_Carolina)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-ea Path.  
-To Consult &quot;Older Heads.&quot;  
-Promises were made the sheriffs  
-that the negro would be carried back  
-to the scene of his crime and the &quot;old­  
-er heads&quot; of the town consulted as to  
-what should be done wth
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.293021,41.266617,16.120258,5.139094/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The herald and news._](https://chroniclingamerica.loc.gov/lccn/sn86063758/1911-10-13/ed-1/seq-3)
-
-#### 1911-10-13 &middot; [Newberry S.C.](http://dbpedia.org/resource/Newberry%2C_South_Carolina)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+y  
+h as ever known. About noon today,  
+Sheriff Poole received word from the  
+Anderson sheriff that he had sent a  
+niegro to Greenville for safe keeping  
+and sked that the prisoner be con­  
 fined in the county Ja!i. Sheriff Poole  
 secured an automobile at once and  
 went to meet, the parties, bringing the  
@@ -629,12 +544,9 @@ ing readily informed by Greenville cit­
 izens which way the negro had been  
 carried, applied the power to their ma­  
 chines and dashed on.  
-Different Routes Taken.  
-At Greenville the mob divided, some  
-taking one road to Spartanburg and  
-some another. Others took to th
+Different Routes Taken.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.293021,53.520433,16.314537,32.179345/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.293021,49.990768,16.314537,33.527203/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -747,14 +659,9 @@ ed into the city, closely followed by
 another machine, and the mud-be?  
 spattered occupants, upon being  
 readily informed by Greenville citi?  
-zens what way the negro had been  
-carried, applied the power to their  
-machines and dashed away.  
-At Greenville the mob divided,  
-some taking one road to Spartanburg  
-and some another, and others too
+zens what way
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_felicitylane_ver01%2Fdata%2Fsn93067846%2F00294551050%2F1911101401%2F0152.jp2/pct:50.572276,34.092670,16.372286,29.796994/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_felicitylane_ver01%2Fdata%2Fsn93067846%2F00294551050%2F1911101401%2F0152.jp2/pct:50.572276,34.092670,16.372286,26.397025/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -786,23 +693,9 @@ was taken to the nearest tele­
 phone post and strung up by the  
 foot. Four hundred shots wen  
 tired into ins notty as near as  
-can be estimated.  
-Hyde Asks For Baptism,  
-Anderson, Samuel Hyde,  
-young white man who slew  
-wife and her father on .June  
-and who is under sentence  
-th  
-hi  
-IS,  
-to  
-hang on Oct. 20, has professed  
-conversion and has addressed a  
-letter to the congregation of the  
-first lbiptist church, asking that  
-he W baptized and received as 
+can be estimated
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_kings_ver01%2Fdata%2Fsn91068476%2F00415667334%2F1911101701%2F1002.jp2/pct:20.389462,42.679222,13.699885,19.957473/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_kings_ver01%2Fdata%2Fsn91068476%2F00415667334%2F1911101701%2F1002.jp2/pct:20.412371,42.679222,13.676976,12.743013/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1019,21 +912,6 @@ ANOTHER HUSBAN
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the prisoner be confined in the county  
-jail. Sheriff Poole secured an automobile  
-at once and went to meet  
-the parties bringing the negro to  
-Greenville. Shortly after he left a &lt;  
-telephone call to his office from Piedmont  
-c+otckri that the automobile con­  
-  
-&#x27; ittVUV DM*WV? w?wv ?- WW ? _ T  
-||te/ taining the negro had just passed  
-there and that about ten machines,  
-jjfefV? containing the mob, were in close  
-jp-g* . &#x27; * ; pursuit and were not more than 10  
-||Jv&#x27; minutes behind.  
-Reached Greenville Jail.  
 At 5 o&#x27;clock the Anderson automo,  
 bfle dashed through the streets of  
 Greenville and up to the county jafil  
@@ -1066,12 +944,9 @@ Greenville citizens what way the negro
 had been carried applied the  
 power to their machines and dashed  
 ahead.  
-Mob Divided to Continue Chase.  
-At Greenville the mob&#x27; divided,  
-some taking one road to Spartanburg  
-and some- another, and others too
+Mob Divided to Continue Chase.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F00295863031%2F1911101901%2F0342.jp2/pct:-2.135248,37.900427,25.533812,32.390430/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F00295863031%2F1911101901%2F0342.jp2/pct:-2.135248,46.945545,25.449341,21.373507/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1083,7 +958,7 @@ and some- another, and others too
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+stant.  
   
 The little girl is in a critical condition.  
 She displayed an unusual  
@@ -1095,7 +970,7 @@ The father of the lass is engaged
 in business in Georgia, and was away  
 from home at the time. He was telegraphe
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F00295863031%2F1911101901%2F0342.jp2/pct:35.534281,18.965570,18.222347,7.208452/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F00295863031%2F1911101901%2F0342.jp2/pct:35.534281,18.535582,18.222347,7.638441/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

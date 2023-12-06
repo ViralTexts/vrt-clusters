@@ -1,9 +1,9 @@
 
-# East St. Louis - The Appeal (July 21, 1917).md
+# East_St._Louis_-_The_Appeal_July_21,_1917
 
-### 127 reprints from 1916-05-13 to 1920-11-06
+### 132 reprints from 1916-05-13 to 1920-11-06
 
-## East St. Louis - The Appeal (July 21, 1917).md
+## East_St._Louis_-_The_Appeal_July_21,_1917
 
 #### From unknown source
 
@@ -11,113 +11,113 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-The Appeal July 21 1917  
+The Appeal - July 21, 1917  
   
-CRIME AGAINST CIVILIZATION  
+**CRIME AGAINST CIVILIZATION.**  
   
-In the opinion of THE APPEAL the strongest article denouncing the East  
+In the opinion of THE APPEAL, the strongest article denouncing the East  
 Saint Louis massacre was an editorial published in the Christian  
-Register of Boston Mass The Regis ter is the leading Unitarian paper  
-pub lished in the United States and per haps that accounts for the  
-article  
+Register of Boston, Mass. The Regis- ter is the leading Unitarian paper  
+pub-lished in the United States and per- haps that accounts for the  
+article.  
   
-The Unitarian church is one of the few Christian denominations in Amer  
-ica in which there is no color line The orthodox Christian sects in  
-Amer ica are so filled with prejudice that the ruthless massacre of  
-helpless men women and children fails to bring out a protest  
+The Unitarian church is one of the few Christian denominations in Amer-  
+ica in which there is no color line. The orthodox Christian sects in  
+Amer- ica are so filled with prejudice that the ruthless massacre of  
+helpless men, women and children fails to bring out a protest.  
   
-The article from the Christian Reg ister which follows is not so long  
-as some of the articles which have ap peared in the daily papers but  
-it is evidently the most sincere which THE APPEAL has seen  
+The article from the Christian Reg- ister, which follows, is not so long  
+as some of the articles which have ap- peared in the daily papers, but  
+it is evidently the most sincere which THE APPEAL has seen:  
   
-The hideous outrage against law and humanity in East St Louis Ill  
-makes us turn again from the barbari ties of war to the ferocities of  
-peace from crimes against civilization abroad to crimes against  
-civilization at home The testimony of eye witnesses shows that nothing  
-is to be learned among white people of this city from the cru elties and  
-brutalities of foreign con quest No tribes of any name or time have  
-ever outdone the white men and women who burned colored men women and  
-children the other day in this American city Nothing more re volting  
-was ever charged against Ne groes than was done by these white  
-people The organization of the man hood of the nation for the  
+The hideous outrage against law and humanity in East St. Louis, Ill.,  
+makes us turn again from the barbari-ties of war to the ferocities of  
+peace, from crimes against civilization abroad to crimes against  
+civilization at home. The testimony of eye witnesses shows that nothing  
+is to be learned among white people of this city from the cru-elties and  
+brutalities of foreign con- quest. No tribes of any name or time have  
+ever outdone the white men and women who burned colored men, women and  
+children the other day in this American city. Nothing more re- volting  
+was ever charged against Ne\-- groes than was done by these white  
+people. The organization of the man- hood of the nation for the  
 protection of human life and liberty on the seas and for the deliverance  
 of democracy in the world will be needed at home after its task abroad  
-is done While our fellow creatures in the United States are hunted and  
-tortured as if they were wild beasts government can scarcely be called  
-democratic So long as colored people are proscribed dis criminated  
-against segregated and despised ill will and antipathy will furnish  
-fertilizers of hatred and mur der  
+is done. While our fellow-creatures in the United States are hunted and  
+tortured as if they were wild beasts, government can scarcely be called  
+democratic. So long as colored people are proscribed, dis-criminated  
+against, segregated and despised, ill-will and antipathy will furnish  
+fertilizers of hatred and mur- der.  
   
-PATRIOTIC MID YEAR EDITION  
+**PATRIOTIC MID-YEAR EDITION.**  
   
-This issue is the Patrotic Mid Year Edition of THE APPEAL  
+This issue is the Patrotic Mid-Year Edition of THE APPEAL.  
   
-THE APPEAL is an American news paper without any hyphen prefix or  
-suffix  
+THE APPEAL is an American news-paper without any hyphen, prefix or  
+suffix.  
   
-The editor of THE APPEAL is an American without any hyphen prefix or  
-suffix  
+The editor of THE APPEAL is an American without any hyphen, prefix or  
+suffix.  
   
 THE APPEAL believes that every person born in the United States is an  
-American should feel that he is an American and should be ready to  
+American, should feel that he is an American and should be ready to  
 sacri fice all of his possessions and even his life to defend the United  
-States  
+States.  
   
-In return for his loyalty to his na tive land THE APPEAL believes that  
-every American has the right to ex pect every right and privilege ac  
-corded to every other American No land is a democracy in which there  
-are two classes of citizens  
+In return for his loyalty to his na- tive land, THE APPEAL believes that  
+every American has the right to ex- pect every right and privilege ac-  
+corded to every other American. No land is a democracy in which there.  
+are two classes of citizens.  
   
-These are the days that we should feel patriotic One hundred and forty  
+These are the days that we should feel patriotic. One hundred and forty-  
 one years ago the United States shook off the bonds of Great Britain and  
-be came independent  
+be- came independent.  
   
-The Declaration of Independence states that all men are created equal  
-and endowed by their creator with cer tain inalienable rights among  
-which are life liberty and the pursuit of happiness After one hundred  
-and forty one years this ideal has not been realized and our much  
-vaunted de mocracy is largely a sham but some progress has been made  
+The Declaration of Independence states that \&quot;all men are created equal  
+and endowed by their creator with cer- tain inalienable rights among  
+which are life, liberty and the pursuit of happiness. After one hundred  
+and forty-one years this ideal has not been realized and our much  
+vaunted de- mocracy is largely a sham, but some progress has been made.  
   
-We are now at war and it is claimed that we are fighting for world wide  
-democracy and in spite of the fact that many forces have been at work  
-in recent years to retard the growth of democracy THE APPEAL believes  
+We are now at war and it is claimed that we are fighting for world-wide  
+democracy, and in spite of the fact that many forces have been at work  
+in recent years to retard the growth of democracy, THE APPEAL believes  
 that the end of the war will find the United States further advanced in  
-true democracy than may appear possible at the present time and in  
-spite of it self  
+true democracy than may appear possible at the present time, and in  
+spite of it- self.  
   
 Not only the United States but in the whole world we are about to enter  
-an era in which the basic principle will be human brotherhood  
+an era in which the basic principle will be human brotherhood.  
   
-WARNS AGAINST RACIAL HATRED  
+**WARNS AGAINST RACIAL HATRED.**  
   
-It is so unusual for a Christian minister to preach against racial hat  
-red that THE APPEAL is pleased to note that one minister has the cour  
-age of his convictions  
+It is so unusual for a Christian minister to preach against racial hat-  
+red that THE APPEAL is pleased to note that one minister has the cour-  
+age of his convictions.  
   
-In his sermon last Sunday Rev H E Peabody pastor of the South Con  
-gregational Church in Chicago said that racial hatred within the  
-United States is more dangerous than all Ger mans outside this country  
+In his sermon last Sunday, Rev. H. E. Peabody, pastor of the South Con-  
+gregational Church, in Chicago, said that racial hatred within the  
+United States is more dangerous than all Ger- mans outside this country.  
   
-Dr Peabody likened the East St Louis massacre to the atrocities of  
-the unspeakable Turk in Armenia  
+Dr. Peabody likened the East St. Louis massacre to the \&quot;atrocities of  
+the unspeakable Turk in Armenia.\&quot;  
   
-The country s perils are not all on the sea and beyond said Dr  
-Pea body Think of the moral earthquake and volcano that has burst in  
-the midst of the land in our own state since last we met  
+\&quot;The country\&#x27;s perils are not all on the sea and beyond,\&quot; said Dr.  
+Pea- body. \&quot;Think of the moral earthquake and volcano that has burst in  
+the midst of the land, in our own state, since last we met.  
   
-Who would have believed that a massacre that reminds one of St  
-Bartholomew s night and of the atroci ties of the unspeakable Turk in  
-Ar menia could occur among our own fellow citizens in East St Louis  
+\&quot;Who would have believed that a massacre that reminds one of St.  
+Bartholomew\&#x27;s night and of the atroci- ties of the unspeakable Turk in  
+Ar- menia, could occur among our own fellow-citizens in East St. Louis?  
   
-But beware The peril is nearer than that The mutterings of the vol  
-cano are felt in Chicago The single explosion is not the most  
-significant thing The race prejudice contempt and hatred  
-working working be neath these are the hell below and
+\&quot;But, beware! The peril is nearer than that. The mutterings of the vol-  
+cano are felt in Chicago. The single explosion is not the most  
+significant thing. The race prejudice, contempt and hatred,  
+working-working be- neath-these are the hell below-and
 </td></tr></table>
 
 ---
 
-## East St. Louis - The Appeal (July 21, 1917).md
+## East_St._Louis_-_The_Appeal_July_21,_1917
 
 #### From unknown source
 
@@ -125,297 +125,300 @@ working working be neath these are the hell below and
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-gs on public buildings be at half mast on Sunday July  
-29th in memory of persons who lost their lives in the East St Louis  
-riots  
+ement in all our hearts; God help us.  
   
-THE ILLINOIS HORROR  
+The National Evangelistic Alliance of America has appealed to President  
+Wilson that flags on public buildings be at half-mast on Sunday, July  
+29th, in memory of persons who lost their lives in the East St. Louis  
+riots.  
   
+**THE ILLINOIS HORROR**  
   
+------------------  
   
-Ashamed to Register From East St Louis  
+**Ashamed to Register From East St. Louis.**  
   
-Chicago Daily American  
+(Chicago Daily American.)  
   
-W R Neal is manager of a hotel in East St Louis Ill Today when he  
-registered at the Congress Hotel he gave his address as St Louis Mo  
-I m ashamed to say I came from East St Louis he told the clerk  
+W. R. Neal is manager of a hotel in East St. Louis, Ill. Today when he  
+registered at the Congress Hotel he gave his address as St. Louis, Mo.  
+\&quot;I\&#x27;m ashamed to say I came from East St. Louis,\&quot; he told the clerk.  
   
+------------------  
   
+**Brought Disgrace on Lincoln\&#x27;s State.**  
   
-Brought Disgrace on Lincoln s State  
+(From the Chicago Daily News.)  
   
-From the Chicago Daily News  
-  
-Mob frenzy displayed in some of its most dreadful forms in East St  
+Mob frenzy displayed in some of its most dreadful forms in East St.  
 Louis yesterday has brought disgrace and just reproach upon the state of  
-Abra ham Lincoln  
+Abra- ham Lincoln.  
   
+------------------  
   
+**The Most Disgraceful Outbreak.**  
   
-The Most Disgraceful Outbreak  
+(From the Chicago Journal.)  
   
-From the Chicago Journal  
+The East St. Louis affair is the most disastrous and disgraceful  
+outbreak the state has known for a generation; perhaps the worst it has  
+ever known. That, it should come during the heat of a foreign war and on  
+the eve of Independence Day makes it still more ominous.  
   
-The East St Louis affair is the most disastrous and disgraceful  
-outbreak the state has known for a generation perhaps the worst it has  
-ever known That it should come during the heat of a foreign war and on  
-the eve of Independence Day makes it still more ominous  
+------------------  
   
+**The Law Itself on Trial.**  
   
+(From the Chicago Herald)  
   
-The Law Itself on Trial  
-  
-From the Chicago Herald  
-  
-East St Louis Ill the law itself are all on trial until this grim  
+East St. Louis, Ill., the law itself, are all on trial until this grim,  
 terrible business is settled and settled rightly Failure of justice  
-means a vicious precedent that will plague the com monwealth for years  
-to come When the issue of law or anarchy is pre sented as plainly as  
-in the orgy at East St Louis there should be but one answer  
+means a vicious precedent that will plague the com- monwealth for years  
+to come. When the issue of law or anarchy is pre- sented as plainly as  
+in the orgy at East St. Louis there should be but one answer.  
   
+------------------  
   
+**The Shame of Illinois.**  
   
-The Shame of Illinois  
+(From the Chicago Tribune.)  
   
-From the Chicago Tribune  
-  
-The riot at East St Louis is one of the worst blots on the good name of  
-an American community in our whole history Illinois must bow her head  
-in shame before this disgrace We have no excuse There can be no ex  
+The riot at East St. Louis is one of the worst blots on the good name of  
+an American community in our whole history. Illinois must bow her head  
+in shame before this disgrace. We have no excuse. There can be no ex-  
 cuse for such a break down of the most primitive safeguards of civil  
-gov ernment for such betrayal of the first duty of ordered society  
+gov- ernment, for such betrayal of the first duty of ordered society.  
   
+------------------  
   
+**Will Sue for Damages.**  
   
-Will Sue for Damages  
-  
-The National Association for the Advancement of Colored People with  
+The National Association for the Advancement of Colored People, with  
 former Judge Edward Osgood Brown of the appellate court president of the  
-local chapter is planning to institute suits under the Illinois  
-statutes against the city of East St Louis and St Clair county for  
+local chapter, is planning to institute suits under the Illinois  
+statutes against the city of East St. Louis and St. Clair county for  
 personal damages on be half of the dependents of the Negro men and women  
 who died at the hands of the incensed mobs in the orgy of murder and  
-arson several days ago  
+arson several days ago.  
   
-Under the statutes the dependents have actions against both the city  
-and the county for damages to property life and limb the judgments not  
-to ex ceed $5 000 in each case This may mean suits for nearly  
-$1 000 000 when the final loss of the scores killed the hundreds  
-injured and the many homes destroyed is recorded  
+Under the statutes, the dependents have actions against both the city  
+and the county for damages to property, life and limb, the judgments not  
+to ex- ceed \$5,000 in each case. This may mean suits for nearly  
+\$1,000,000 when the final loss of the scores killed, the hundreds  
+injured and the many homes destroyed is recorded.  
   
+------------------  
   
+**The Illinois Massacre.**  
   
-The Illinois Massacre  
+(From the Chicago Evening Post.)  
   
-From the Chicago Evening Post  
+\&quot;In ouah town we don\&#x27;t let a nig gah get off the train long enough to  
+brush youah coat, not even if he\&#x27;s a po\&#x27;tah on a Pullman.\&quot;  
   
-In ouah town we don t let a nig gah get off the train long enough to  
-brush youah coat not even if he s a po tah on a Pullman  
+They\&#x27;ll tell you this in just these accents in some of the southern  
+towns of Illinois.  
   
-They ll tell you this in just these accents in some of the southern  
-towns of Illinois  
+And it was from these towns that the militiamen came to \&quot;maintain or  
+der in East St. Louis.\&quot;  
   
-And it was from these towns that the militiamen came to maintain or  
-der in East St Louis  
+This is the whole story of the fail- ure of the militia in the worst  
+race riot that has disgraced Illinois since Lovejoy was martyred.  
   
-This is the whole story of the fail ure of the militia in the worst  
-race riot that has disgraced Illinois since Lovejoy was martyred  
+Troops from Northern Illinois should have been sent into East St. Louis;  
+troops from Southern Illinois should not have been sent there. For the  
+twi- light zone of the Mason and Dixon line cuts across the central and  
+south- ern portions of the state.  
   
-Troops from Northern Illinois should have been sent into East St Louis  
-troops from Southern Illinois should not have been sent there For the  
-twi light zone of the Mason and Dixon line cuts across the central and  
-south ern portions of the state  
+------------------  
   
+**Greatest Disgrace to State.**  
   
-  
-Greatest Disgrace to State  
-  
-I feel very strongly on the sub ject said Judge Brown today In  
+\&quot;I feel very strongly on the sub- ject,\&quot; said Judge Brown today. \&quot;In  
 my opinion it is the greatest disgrace upon the name of the state of  
-Illinois yet recorded I m very indignant Our or ganization is  
-watching the proceed ings there but we are waiting for the reports of  
-the various investigations I do not want to appear to criticize any one  
-at this time We have faith in Governor Lowden unearthing all the facts  
+Illinois yet recorded. I\&#x27;m very indignant. Our or ganization is  
+watching the proceed- ings there, but we are waiting for the reports of  
+the various investigations. I do not want to appear to criticize any one  
+at this time. We have faith in Governor Lowden unearthing all the facts.  
 At a meeting to be held in the near future we will decide what steps to  
-take  
+take.\&quot;  
   
-The society will prosecute suits for damage against the city and  
-county for each Negro killed or injured said Dr Charles E Bentley  
-dentist at 25 East Washington street The stat utes are clear on the  
-subject We will go after the sheriff also if the facts prove our  
-beliefs  
+\&quot;The society will prosecute suits for damage against the city and  
+county for each Negro killed or injured,\&quot; said Dr. Charles E Bentley,  
+dentist at 25 East Washington street. \&quot;The stat utes are clear on the  
+subject. We will go after the sheriff also if the facts prove our  
+beliefs.  
   
-We are so astonished we can hardly express our feelings It is most  
-outrageous  
+\&quot;We are so astonished we can hardly express our feelings. It is most  
+outrageous.\&quot;  
   
+------------------  
   
+**Worse Than Belgium.**  
   
-Worse Than Belgium  
+New York, July 3.-\&quot;Swift and se- vere punishment\&quot; for the East St.  
+Louis mobs was demanded by the So- cialist leader, William English Wall-  
+ing. in a telegram to President Wilson today.  
   
-New York July 3 Swift and se vere punishment for the East St  
-Louis mobs was demanded by the So cialist leader William English Wall  
-ing in a telegram to President Wilson today  
-  
-Such punishment is necessary Wall ing said because of the  
-dangerous effect of race riots in America en rev olutionary Russia  
-South America and Japan  
+Such punishment is necessary, Wall- ing said, because \&quot;of the  
+dangerous. effect of race riots in America en rev- olutionary Russia,  
+South America and Japan.\&quot;  
   
 Walling characterized the uprising as partly the result of German  
-agents efforts to stir up a race war to keep American troops at home  
-and partly the result of an attempt by the South ern states to keep the  
-Negro under their thumb  
+agents\&#x27; efforts to stir up a race war to keep American troops at home  
+and partly the result of an attempt by the South- ern states to keep the  
+Negro under their thumb.  
   
 Speaking as a member of the execu tive committee of the National Asso  
-ciation for the Advancement of Col ored People Walling in his  
-telegram said  
+ciation for the Advancement of Col- ored People, Walling, in his  
+telegram, said:  
   
-The international and military sit uation calls for immediate  
-action There must be swift and severe pun ishment for the mob But  
-this will not suffice There should be an immedi ate presidential  
+\&quot;The international and military sit- uation, calls for immediate  
+action, There must be swift and severe pun- ishment for the mob. But  
+this will not suffice. There should be an immedi- ate presidential  
 proclamation in the present military exigency that the full military  
-power of the nation will be used in defense of the lives and lib erty  
-of our colored fellow citizens  
+power of the nation will be used in defense of the lives and lib- erty  
+of our colored fellow citizens.\&quot;  
   
-LET AGITATION GO ON SAYS REV F J GRIMKE  
+**LET AGITATION GO ON, SAYS REV. F. J. GRIMKE.**  
   
-Commends Protest by Guardian and Planet Race Will Protest Till White  
+**Commends Protest by Guardian and Planet-Race Will Protest Till White  
 America Accords the Rights Which Belong to Every American Citizen  
-Steady Decline of Rights Under B T Washington Policy  
+-Steady Decline of Rights Under B. T. Washington Policy.**  
   
-From the Boston Guardian  
+(From the Boston Guardian.)  
   
-Washington D C June 1 1917 Dear Mr Trotter I have just read in  
-the last issue of the Guardian your editorial including the editorial  
-of Mr John Mitchell of the Planet in which he administers a very just  
-and timely rebuke to Dr Frissell for some things which he says in the  
-last issue of the Southern Workman  
+Washington, D. C., June 1, 1917. Dear Mr. Trotter:-I have just read in  
+the last issue of the Guardian your editorial, including the editorial  
+of Mr. John Mitchell of the Planet, in which he administers a very just  
+and timely rebuke to Dr. Frissell for some things which he says in the  
+last issue of the Southern Workman.  
   
-Rights Declined Under Washington  
+**Rights Declined Under Washington.**  
   
-It is amazing that at this late day and after the STEADY DECLINE OF OUR  
-RIGHTS UNDER MR WASH INGTON S POLICY of quiet unpre tentious  
-service that Dr Frissell should be attempting to revive that  
-pernicious un American unmanly heresay of quiet submission to wrong  
-What God directed his prophet to do was Cry aloud spare not lift up  
-thy voice like a trumpet and declare junto my people their  
-transgression and the house of Jacob their sins And that is what we  
-have been doing and will continue to do until White America heeds the  
-message turns from its evil ways and accords to the colored man the  
+It is amazing that at this late day, and after the STEADY DECLINE OF OUR  
+RIGHTS UNDER MR. WASH- INGTON\&#x27;S POLICY of \&quot;quiet, unpre- tentious  
+service.\&quot; that Dr. Frissell should be attempting to revive that  
+pernicious, un-American, unmanly, heresay of quiet submission to wrong.  
+What God directed his prophet to do was: \&quot;Cry aloud, spare not, lift up  
+thy voice like a trumpet, and declare junto my people their  
+transgression, and the house of Jacob their sins.\&quot; And that is what we  
+have been doing, and will continue to do, until White America heeds the  
+message, turns from its evil ways and accords to the colored man the  
 rights which justly belongs to him as much as to any other American  
-citizen  
+citizen.  
   
-Let Frissell Understand Once and for All Time  
+**Let Frissell Understand Once and for - All Time.**  
   
-Dr Frissell had just as well under stand now once for all that the  
-policy for which he stands as regards our rights will never be  
-accepted by the colored man And the inculcation of such a policy comes  
+Dr. Frissell had just as well under- stand now, once for all, that the  
+policy for which he stands, as regards our rights, will never be  
+accepted by the colored man. And the inculcation of such a policy comes  
 with very little grace from white men who never think of following it  
-when their own rights are involved  
+when their own rights are involved.  
   
-Think Colored Unlike Whites  
+**Think Colored Unlike Whites.**  
   
-It is because after all they think that the Negro is made of a little  
-dif ferent clay and therefore that it is alright FOR HIM TO QUIETLY  
-SUB MIT TO WHAT WHITE MEN WOULD NOT BE EXPECTED TO SUBMIT TO AND  
-WOULD NOT SUBMIT TO WITHOUT THE MOST VIGOROUS PROTEST  
+It is because, after all, they think that the Negro is made of a little  
+dif- ferent clay. and therefore that it is alright FOR HIM TO QUIETLY  
+SUB- MIT TO WHAT WHITE MEN WOULD NOT BE EXPECTED TO SUBMIT TO, AND,  
+WOULD NOT SUBMIT TO WITHOUT THE MOST VIGOROUS PROTEST?  
   
-Put Themselves In Our Place  
+**Put Themselves In Our Place.**  
   
 If some of our white friends would put themselves in the place of the  
-colored man and realize that there is no essential difference between  
-the colored man and themselves they would be saved from some of the  
-fool ish things which they recommend at times  
+colored man, and realize that there is no essential difference between  
+the colored man and themselves, they would be saved from some of the  
+fool- ish things which they recommend at, times.  
   
-Let the Agitation Go On  
+**Let the Agitation Go On.**  
   
-Let the Planet let the Guardian let all the colored newspapers  
-continue to speak out and in every other legiti mate way LET THE  
-AGITATION GO ON It is in vain for Dr Frissell or any one else to try  
-to stop it Yours for equality of rights for all citizens regardless of  
-race or condi tion  
+Let the Planet. let the Guardian. let all the colored newspapers,  
+continue to speak out, and, in every other legiti mate way, LET THE  
+AGITATION GO ON. It is in vain for Dr. Frissell, or any one else to try  
+to stop it. Yours for equality of rights for all citizens, regardless of  
+race or condi-tion.  
   
-FRANCIS J GRIMKE  
+FRANCIS J. GRIMKE.  
   
+------------------  
   
+**Hates the Term \&quot;Negro.\&quot;**  
   
-Hates the Term Negro  
-  
-I hate the term Negro because it is being used in terms of hatred It  
-is the cause of the segregation of the Negro it is being used in  
-contempt in public places it is an excuse för disfranchising him and  
-it is an ex cuse for lynching him Only one tenth of one per cent of  
-the colored people in America can trace their descent to Africa and  
+\&quot;I hate the term Negro because it is being used in terms of hatred. It  
+is the cause of the segregation of the Negro; it is being used in  
+contempt in public places; it is an excuse för disfranchising him; and  
+it is an ex- cuse for lynching him. Only one- tenth of one per cent of  
+the colored people in America can trace their descent to Africa, and  
 there is no more right to call all colored people Negroes than to call  
-all white people Turks or Armenians Ex Assistant United States  
-Attorney General Wm H Lewis Boston Mass  
+all white people Turks or Armenians.\&quot;-Ex-Assistant United States  
+Attorney General Wm. H. Lewis, Boston, Mass.  
   
+------------------  
   
+**Mad Savagery**  
   
-Mad Savagery  
+(Springfield Republican)  
   
-Springfield Republican  
-  
-While we are so critical of the na tions known as our enemies it is  
+While we are so critical of the na- tions known as our enemies it is  
 morally disconcerting to have staged in America such mad savagery as the  
-latest burning to death of a colored man by a mob in Tennessee The  
-colored man was clearly guilty it seems of the fiendish murder of a  
-white girl but retaliation in flendish ness gets us nowhere in  
-correcting or even punishing a criminal class I When race feeling is  
+latest burning to death of a colored man by a mob in Tennessee. The  
+colored man was clearly guilty, it seems, of the fiendish murder of a  
+white girl, but retaliation in flendish- ness gets us nowhere in  
+correcting or even punishing a criminal class. I When race feeling is  
 involved it is Impossible to conceive of anything so disastrous in its  
-ultimate effects as the treatment which mobs occasion ally give to  
-these black men At a time when Americans need to show real capacity for  
-mass discipline and respect for authority we are forced to contemplate  
-these hideous specta cles of mass brutishness and social anarchy  
+ultimate effects as the treatment which mobs occasion- ally give to  
+these black men. At a time when Americans need to show real capacity for  
+mass discipline and respect for authority, we are forced to contemplate  
+these hideous specta- cles of mass brutishness and social anarchy.  
   
+------------------  
   
+**\&quot;Negroes and Dogs Not Allowed\&quot;**  
   
-Negroes and Dogs Not Allowed  
+(From the Nashville Clarion)  
   
-From the Nashville Clarion  
+Down in Houston, Texas are some elevators in public buildings labeled  
+\&#x27;NEGROES AND DOGS NOT ALLOW ED.\&quot; Generous Classification! Such signs  
+as these account in such meas- ure, for the exceedingly rapid manner in  
+which the Colored men are depopu- lating the South. They can be neither  
+blamed nor censured\&#x27; for leaving a town like this. They have hearts and  
+souls and human pride, just like the people of other races.  
   
-Down in Houston Texas are some elevators in public buildings labeled  
-NEGROES AND DOGS NOT ALLOW ED Generous Classification Such signs  
-as these account in such meas ure for the exceedingly rapid manner in  
-which the Colored men are depopu lating the South They can be neither  
-blamed nor censured for leaving a town like this They have hearts and  
-souls and human pride just like the people of other races  
+------------------  
   
+**Must Have a Place in School**  
   
+(From the Chicago Defender)  
   
-Must Have a Place in School  
-  
-From the Chicago Defender  
-  
-Our naval training camp has every nationality under the sun As a red  
-flag to flout into the face of the bull we have Chinamen out there the  
-Filipino out there the Greek out there the Hebrew out there the  
-Italian out there and God himself only knows what else out there but  
+Our naval training camp has every nationality under the sun. As a red  
+flag to flout into the face of the bull, we have Chinamen out there, the  
+Filipino out there, the Greek out there, the Hebrew out there, the  
+Italian out there, and God himself only knows what else out there, but  
 we do know that if we are anywhere near there we are near the bathroom  
-with a mop and broom Space must be made for the boy of the Colored race  
-in the school for which we are paying taxes  
+with a mop and broom. Space must be made for the boy of the Colored race  
+in the school for which we are paying taxes.  
   
+------------------  
   
+**The Eternal Gospel**  
   
-The Eternal Gospel  
+(From the Martinsville Pioneer-Press)  
   
-From the Martinsville Pioneer Press  
+We have no respect for a servile, cringing colored man. He is of more  
+service to his people under the sod than on top of it.-Richmond (Va)  
+Planet. That is our eternal gospel, preach it in the valleys and on the  
+mountain tops.  
   
-We have no respect for a servile cringing colored man He is of more  
-service to his people under the sod than on top of it Richmond Va  
-Planet That is our eternal gospel preach it in the valleys and on the  
-mountain tops  
+------------------  
   
+**Not Consistent**  
   
+(Baltimore (Md.) Commonwealth)  
   
-Not Consistent  
-  
-Baltimore Md Commonwealth  
-  
-President Wilson cannot consistent ly contend for liberty equality and  
-justice for Belgians Russians Poles French English and Teutons  
-without conceding justice liberty and equal ity to ALL citizens of his  
-own coun try
+President Wilson cannot consistent- ly contend for liberty, equality and  
+justice for Belgians, Russians, Poles, French, English and Teutons  
+without conceding justice, liberty and equal- ity to ALL citizens of his  
+own coun- try.
 </td></tr></table>
 
 ---
@@ -524,7 +527,21 @@ H. Lewis, Boston, Mass
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+hern whites for two centuries,  
+when formally speaking or writing  
+about an unworthy or criminal man  
+or woman of the race. For when he  
+speaks of the worthy he invariably  
+says &quot;colored.&quot;  
+f. It is not differentiated in the mind  
+and thought of the whites from their  
+favorite and generally used (among  
+themselves) terms, &quot;Nigro&quot; and &quot;Nig  
+ger.&quot;  
+g. As -stated by an eminent Japanese  
+diplomat it has an unquestioned in­  
+fluence in cutting us off from the  
+thought, sympathy and co-operation  
 of the millions of colored Africans, Asi­  
 atics and Islanders of the Yonder  
 world.  
@@ -547,7 +564,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916052701%2F0347.jp2/pct:69.316731,57.057998,12.328955,11.054538/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916052701%2F0347.jp2/pct:69.316731,50.057117,12.328955,18.055420/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -656,7 +673,21 @@ H. Lewis, Boston, Mass
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+thern whites for two centuries,  
+when formally speaking or writing  
+about an unworthy or criminal man  
+or woman of the race. For when he  
+speaks of the worthy he invariably  
+says &quot;colored.&quot;  
+t. It Is not differentiated in the mind  
+and thought of the whites from their  
+favorite and generally used (amon?  
+themselves) terms, &quot;Nigro&quot; and &quot;Nig  
+ger.&quot;  
+g. As stated by an eminent Japanese  
+diplomat it has an unquestioned In­  
+fluence in cutting us off from the  
+thought, sympathy and co-operation  
 of the millions of colored Africans, Asi­  
 atics and Islanders of the Yondei  
 world.  
@@ -679,7 +710,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm.  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916070101%2F0368.jp2/pct:69.444072,56.102234,12.025006,10.999610/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916070101%2F0368.jp2/pct:69.444072,49.152377,12.114311,17.949467/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -691,7 +722,21 @@ H. Lewis, Boston, Mass
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+outhern whites for&#x27; two centuries,  
+when formally speaking or writing  
+about an unworthy or criminal man  
+or woman of the race. For when he  
+speaks of the worthy he invariably  
+8ava&quot;colored.&quot;  
+f. It is not differentiated in the mind  
+thought of the whites from their  
+favorite and generally used (amonf  
+themselves) terms, &quot;Nigro&quot; and &quot;Nig  
+ger.&quot;  
+g. As stated by an eminent Japanese  
+diplomat it has an unquestioned in­  
+fluence, in cutting us off from the  
+thought, sympathy and co-operation  
 of the millions of colored Africans, Asi­  
 atics and Islanders of the Yonder  
 world.  
@@ -714,7 +759,7 @@ Turks or rmenians.&quot;Ex-Assistan
 United States Attorney General Wm.  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916111101%2F0446.jp2/pct:69.946444,57.582583,14.570885,11.163337/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916111101%2F0446.jp2/pct:69.946444,50.620185,14.570885,18.125734/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -726,7 +771,21 @@ H. Lewis, Boston, Mass
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+Southern whites for two centuries,  
+when formally speaking or writing  
+about an unworthy or criminal man  
+or woman of the race. For when he  
+speaks of the worthy he invariably  
+savs &quot;colored.&quot;  
+It is not differentiated in the mind  
+ind thought of the whites from their  
+favorite and generally used (amonr  
+themselves) terms, &quot;Nigro&quot; and &quot;Nig  
+ger&quot;  
+g. As stated by an eminent Japanese  
+diplomat it has an unquestioned In­  
+fluence in cutting us oft\ from the  
+thought, sympathy and co-operation  
 of the millions of colored Africans, Asi­  
 atics and Islanders of the Yonder  
 world.  
@@ -749,7 +808,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm.  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916111801%2F0450.jp2/pct:70.543450,58.318767,13.826901,11.163980/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916111801%2F0450.jp2/pct:70.543450,51.414514,13.826901,18.068233/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1037,18 +1096,9 @@ more right to call all colored people
 Negroes than to call wil white people  
 Turks or Armenians.&quot;Ex-Assistant  
 United States Attorney General Wm..  
-H. Lewis, Boston, Mass.  
-OUR NEED OF JUXTAPOSITION  
-(From the Boston Guardian  
-That,we much rather be, and asso­  
-ciate among ourselves, is a saying by  
-Colored Americans that has become  
-almost trite. That is a mistake it  
-is a feeling of avowed cowardice and  
-innate inferiority. It is an utter im  
-possibilitay for the two races to su
+H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917032401%2F0525.jp2/pct:69.099365,43.937339,12.588319,23.885659/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917032401%2F0525.jp2/pct:69.112781,43.937339,12.574904,18.594961/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1060,7 +1110,18 @@ possibilitay for the two races to su
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+lem­  
+mas? What would they say if our  
+former ministers, doctors, and preach­  
+ers were to summon them with pas- rights are involved.  
+ole carcass of beef could be ob-  
+tamed for $7 50 How the imagina­  
+tion is stirred by those figures until  
+one reads that skilled carpenters were  
+paid 12 cents a day and less skilled  
+workers in proportion. The Okla­  
+homan is much puzzled by*it all, but  
+at least he sees clearly when stating  
 that the only hope is in increased  
 production.  
 We are having quite a seance with  
@@ -1134,17 +1195,9 @@ any one else to try to stop it.
 Yours for equality of rights for &quot;all  
 citizens, regardless of race or condi­  
 tion.  
-FRANCIS J. GRIMKE.  
-(From  
-no  
-galleries in theaters for our He Is a man.^~3sgr &amp;hrj*t2&amp;  
-Hs I. A flssl Msn.  
-the Pioneer-Press, Martins­  
-burgh, W. Vs.)  
-Editor W. P. Dabney, of the Cincin­  
-nati Union, is busy day and nigh
+FRANCIS J. GRIMKE
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917051201%2F0554.jp2/pct:48.398778,44.811459,23.686736,51.576862/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917051201%2F0554.jp2/pct:45.636998,39.773945,26.448517,48.825879/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1156,20 +1209,7 @@ nati Union, is busy day and nigh
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-which any  
-other self-respecting race would not  
-accept. The danger of Hampton and  
-Tuskegee is their building up a man­  
-hood of weaklings and non-resistants.  
-They are making colored youths be^  
-lieve that they are right when they  
-told his New York audience a few&#x27;wavers and glows through lis all­  
-Wagner and Shakespeare, Tolstoi and  
-Moliere! Though the&#x27;cathedrals quar­  
-rel together and sing praises with  
-siege-guns to their own littlIer foolish  
-SHOULD *BE  
-take southern sand and say  
+  
 POLIC  
 SUBMIT TO WITHOUT THE MOST have sugar. These institution  
 VIGOROUS PROTEST? i^rSJ? mJSS5SSi,Li!?i.-be__?ncourageds  
@@ -1183,7 +1223,7 @@ would be saved from some of the fool­
 ish things which they recommend at  
 times
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917051201%2F0554.jp2/pct:57.626527,66.978466,36.273997,16.090162/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917051201%2F0554.jp2/pct:57.626527,77.621878,24.070681,5.446750/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1195,7 +1235,23 @@ times
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+a  
+ag0  
+an  
+und  
+Du  
+no  
+were ,10 cents a hundred! sixteen  
+pounds of butter could be had for 25  
+cents wine was 5 cents a quart, and  
+a whole carcass of beef could be ob­  
+tained for $7.50. How the imagina­  
+tion is stirred by those figures until  
+one reads that skilled carpenters were  
+paid 12 cents a day and less skilled  
+workers in proportion. The Okla­  
+homan is much puzzled by it all, but  
+at least he sees clearly when stating  
 that the only hope is in increased  
 production.  
 We are having quite a seance with  
@@ -1281,15 +1337,9 @@ any one else to try to stop it.
 Yours for equality of rights for all  
 citizens, regardless of race or condi­  
 tion.  
-FRANCIS J. GRIMKE.  
-(From  
-grown and multiplied rapidly and matt Union, is busy day aitf night  
-much of it has been due to our refusal  
-to fight the issues raised with all our  
-resources, before they became opera­  
-tive. In the South disfranchisin
+FRANCIS J. GRIMKE
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917051901%2F0558.jp2/pct:43.257677,44.829027,24.632844,49.010156/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917051901%2F0558.jp2/pct:55.643080,35.187685,12.247441,52.879547/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1382,13 +1432,9 @@ would be saved from some of-the fool­
 ish things which they recommend at  
 times. ~S*_ &amp;u  
 ardles  
-tion.  
-s-&quot;^,~  
-HAMPTON AND TUSKEGEE.  
-The Following Article is Taken From  
-The Cleveland Gazette, ano is Onl
+tion
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917052601%2F0562.jp2/pct:55.672916,29.685486,24.438870,66.408868/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917052601%2F0562.jp2/pct:55.672916,48.585331,12.512103,47.509023/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1401,9 +1447,6 @@ The Cleveland Gazette, ano is Onl
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-1  
-tha  
-for whicT he stands, as regards our BUT THEIR POLICY And the inculcation of  
 _*  
 &quot;Let the Agitation Go On.  
 Let the Planet, let the Guardian, let  
@@ -1416,7 +1459,7 @@ Your for equality*of_
 condj  
 Tights&#x27; for al
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917052601%2F0562.jp2/pct:55.703723,77.368523,19.672564,17.839649/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917052601%2F0562.jp2/pct:55.703723,90.274555,12.102808,4.933617/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1446,7 +1489,20 @@ themselves, all lynching and burning would be made a crim
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+ications should be addressed to  
+the Commanding Generals of Depart­  
+ments as follows: Northeastern De­  
+partment, Boston, Mass., Eastern De­  
+partment, Governors Island, N. Y.,  
+Southeastern Department, Charleston  
+S. C, Southern Department, Fort Sam  
+Houston, Texas, Central Department  
+Chicago, 111.. Western Department, San  
+Francisco, Cal.  
+The contingent from each Depart­  
+ment will be as follows: Northeastern  
+40, Eastern 240, Southeastern 430  
+Central 195, Southern 75, Western 20  
 The remaining 250 will be noncommis­  
 sioned officers from regiments as indi­  
 cated above.  
@@ -1550,8 +1606,7 @@ Negroes thantocall all white people
 Turks or Armenians.&quot;Ex-Assistant  
 United States Attorney General Wm.  
 1, Night meeting  
-May May May  
-May May May May May May Ma
+May May Ma
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917060201%2F0566.jp2/pct:56.007436,17.618117,20.194052,76.735093/!600,600/0/default.jpg"/>
 </td>
@@ -1566,15 +1621,6 @@ May May May May May May Ma
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-burners in one issue, and in a few  
-days thereafter came out in a tacit  
-suggestion that lynching be resorted  
-to for a certain class of malefactors.  
-Consistency should be the watch­  
-word of the American. There is  
-sufficient law in this country to  
-punish all classes of offenders. All  
-that is needed, is its application.  
   
 We have 110 respect for a servile,  
 cringing colored man. He is of  
@@ -1584,7 +1630,7 @@ mond (Va; Planet. That is our
 eternal gospel, preach it in the]  
 valleys and 011 the mountain tops
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wvu_gorn_ver01%2Fdata%2Fsn83025146%2F00271768217%2F1917060201%2F1244.jp2/pct:4.843350,40.504834,18.920503,14.851414/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wvu_gorn_ver01%2Fdata%2Fsn83025146%2F00271768217%2F1917060201%2F1244.jp2/pct:4.944587,49.137129,18.819267,6.219119/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1641,10 +1687,9 @@ real capacity for mass discipline and
 respect for authority, we are forced  
 to contemplate these hideous specta­  
 cles of mass brutishness and social  
-anarchy.  
-The Cause of Migratio
+anarchy
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917060901%2F0570.jp2/pct:57.146695,40.477345,12.202221,28.120048/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917060901%2F0570.jp2/pct:57.146695,40.477345,12.202221,26.616216/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1912,10 +1957,20 @@ aS2n r
 he administers a very just and timely  
 rebuke to Dr. Frissell for some things  
 which he says in the last issue of the  
-Southern Workman  
-All Time.  
-ot  
-lynching and lawlessness in&#x27;  
+Southern Workma
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917061601%2F0574.jp2/pct:57.646435,29.879135,24.803428,64.686822/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-06-16/ed-1/seq-2)
+
+#### 1917-06-16 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
 the .rural districts,&quot; pay the colored  
 man living wages, give him a square  
 deal on the farms, better schools, open  
@@ -1991,7 +2046,7 @@ citizens, regardless of race or condi­
 tion.  
 FRANCIS J. GRIMKE
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917061601%2F0574.jp2/pct:57.646435,25.028353,36.915805,69.537604/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917061601%2F0574.jp2/pct:57.920311,25.028353,36.641929,52.305499/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2258,12 +2313,7 @@ any one else to try to stop it.
 Yours for equality of rights for all  
 citizens, regardless of race or condi­  
 tion.  
-FRANCIS J. GRIMKE.  
-The Color Line in the Catholic Church.  
-(From the Southwestern Christian Ad­  
-vocate, New Orleans, La.)  
-There are two hundred thousand  
-colored Catholics in the United State
+FRANCIS J. GRIMKE
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917062301%2F0578.jp2/pct:57.583076,65.103511,24.008229,11.423312/!600,600/0/default.jpg"/>
 </td>
@@ -2360,16 +2410,7 @@ citize
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-s that  
-DEMOCRACY WILL GAIN.  
-Prof. Charles E. Merriam in an ar­  
-ticle on the &quot;War for Freedom,&quot; &quot;as-  
-sumes that as a result of the present  
-war both civil liberty and industrial  
-democracy will be the gainers in every  
-country in the world and the United  
-States will be no exception. Here are  
-some of the things he has to say: I  
+  
 every American has the right to ex- ambassador declares. One is further  
 pect every right and privilege ac­  
 corded to every other American No  
@@ -2406,7 +2447,7 @@ the whole world we are about to enter
 an era in which the basic principle  
 will be human brotherhood
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917063001%2F0582.jp2/pct:7.882254,68.816687,24.413707,26.562850/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917063001%2F0582.jp2/pct:8.001951,69.489570,24.294011,20.032683/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2669,12 +2710,21 @@ the national movement for the ad­
 vancement for Colored people, he said  
 &quot;savages at Bast St. Louis deliberate­  
 ly prepared this riot for a who*  
-month. Without military excuse, it  
-was worse therefore than anything  
-the Germans did in Bglgium and to  
-be compared only to •the Jewish mas­  
-sacres under, the czar.  
-&quot;The pretext of labor invasion is&#x27; In­  
+month. Without military excuse, i
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_elgin_ver01%2Fdata%2Fsn87057262%2F00295875215%2F1917070301%2F0636.jp2/pct:60.028000,32.047976,13.149435,12.804454/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The daily Gate City and constitution-Democrat._](https://chroniclingamerica.loc.gov/lccn/sn87057262/1917-07-03/ed-1/seq-2)
+
+#### 1917-07-03 &middot; [Keokuk, Iowa](http://dbpedia.org/resource/Keokuk%2C_Iowa)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 valid. There is no over supply of  
 labor anywhere In the country today.  
 &quot;The riot was caused by tho efforts  
@@ -2706,7 +2756,7 @@ liberty of our colored fellow ^tizens.&quot;
 LEE COUNTY  
 EXEMPTIONS
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_elgin_ver01%2Fdata%2Fsn87057262%2F00295875215%2F1917070301%2F0636.jp2/pct:59.872446,32.047976,13.304988,31.274305/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_elgin_ver01%2Fdata%2Fsn87057262%2F00295875215%2F1917070301%2F0636.jp2/pct:59.872446,47.328994,13.149435,15.993287/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2881,6 +2931,78 @@ Colored fellow citizens.&quot;
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
+ntry in the world.  
+America will be no exception.&quot;  
+War is a horrible thing viewed from  
+any angle, but good will come out of  
+it and when it is over many of the old  
+prejudices and distinctions which have  
+cursed the world will have been  
+burned away.  
+GIVE TH E CHANCE, WE&#x27;LL HOLD  
+OUR OWN.  
+uates as follows: Lorenzo D. Turner  
+of Rockville, Ind., with degree of A.  
+M., and the following A. B.&#x27;s, L. V.  
+,-sir&#x27;s tr*f **xMgg^l  
+REFUSES TO BE IMC ROW BISHOP.  
+Rev. James S. Russell of Lawrenceville, Va., Recently Appointed Suffragan,  
+or Jim Crow Bishop, for Several of the Southern  
+States, Has Declined the Honor  
+at the present time, and in spite of it- Alexis, with honor grade &quot;Cum Laude&quot;  
+Not only the United States but in, burgh, Penn, also U. W. Holley of  
+the whole world we are about to enter Roxbury, son of Mr. and Mrs. Holley
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:19.473470,26.085264,24.933279,69.982480/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-07/ed-1/seq-2)
+
+#### 1917-07-07 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+u­  
+sands of whom are at heart traitors  
+to their chosen country and many of  
+whom would not hesitate to strike and  
+will not hesitate to strike for the  
+Kaiser, if the opportunity comes.  
+It is said that the United States  
+has gone into war to fight for democ­  
+racy. If this is true the undemocratic  
+conditions at home should he eliminat­  
+ed before the soldiers go abroad to  
+fight for democracy.  
+Cut out all Jim Crow business in  
+the United States.  
+Give us liberty, equality and democ­  
+racy.  
+THE ILLINOIS HORRO  
+B7r, Tr  
+TTV,+.* o* brush-youah coat, not even if he&#x27;s a  
+of the United States in entering the  
+nco  
+yesterday has brought disgrace and  
+just reproach upon the state of Abra  
+ham Lincoln.  
+The Most Disgraceful Outbreak
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:32.238657,12.685744,24.679966,46.239699/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-07/ed-1/seq-2)
+
+#### 1917-07-07 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
   
 The National Association for the  
 Advancement of Colored People, with  
@@ -2950,8 +3072,21 @@ utes are clean on the subject. W will
 prove our beliefs.  
 &quot;We are so astonished we can  
 hardly express our feelings. It is most  
-outrageous.&quot;  
-Worse Than Belgium.  
+outrageous.
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:44.578640,45.730322,12.611390,33.596133/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-07/ed-1/seq-2)
+
+#### 1917-07-07 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+Belgium.  
 uation calls for immediate action.  
 There must be &quot;swift and severe pun­  
 ishment for the mob. But this will not  
@@ -2959,7 +3094,35 @@ suffice. There should be an immedi&#x27;
 ate presidential proclamation in the  
 military power of the nation will be  
 :used  
-Mob frenzy displayed in some of its and an active and efficient fraternal
+Mob frenzy displayed in some of its and an active and efficient fraternal  
+most dreadful forms in East St. Louis society man.  
+ftJ^jSS JS  
+&quot;&quot;J  
+00  
+The Law Itself on Trial.  
+(From the Chicago Herald.)  
+East St. Louis, 111., the law itself,  
+are all on trial until this grim, terrible  
+business is settled and settled rightly  
+Failure of justice means a vicious  
+precedent that will plague the- com-  
+monwealth for years to come. When  
+the issue of law.or anarchy is pre­  
+sented as plainly as in the orgy at  
+East St. Louis there should be but  
+one answer.  
+The Shame of Illinois.  
+(From the Chicago Tribune.)  
+The riot at East St. Louis is one of  
+worst blots on the good name of  
+an American community in our whole  
+history. Illinois must bow her head  
+in shame before this disgrace. We  
+have no excuse. There can be no ex­  
+cuse for such a break down of the&#x27;  
+most primitive safeguards of civil gov  
+ernment, for such betrayal of the first  
+duty of ordered society
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:44.533406,25.475310,24.788529,69.787814/!600,600/0/default.jpg"/>
 </td>
@@ -2973,7 +3136,9 @@ Mob frenzy displayed in some of its and an active and efficient fraternal
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-neration interest ran high when the MIMS  
+e for Damages.  
+disastrous and disgraceful outbreak StTaulTsoTTs notsurpVsnglha  
+the state has known for a generation interest ran high when the MIMS  
 perhaps the worst it has ever known, ment was announced and tht kePn fn&quot;  
 That it should come during the heat terest continued until the cllmfnation  
 of a foreign war and on the eve of at Pilgrim Church Saturdav PIES?  
@@ -3005,7 +3170,7 @@ said: ^~_ I wife slipped out the side way and left
 The international and military sit- for a honeymoon trip to Benton Har-  
 present military exigency that the full have gone to ^housekeeping in thei
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:44.601258,29.540588,24.820193,64.775161/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:44.601258,29.053923,24.820193,65.261826/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3082,6 +3247,8 @@ their thumb.
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+Invalid. There Is no oversupply of  
+labor anywhere In the country today.  
 The riot was caused by the efforts oi  
 the anti-Negro element of the South  
 to check the exodus of Colored labor,  
@@ -3103,71 +3270,10 @@ the full military power of the Nation
   
 will be used In defense of the lives  
   
-and liberty of our Colored fellow clt
+and liberty of our Colored fellow clti  
+zens.&quot; Tuesday&#x27;s K. C. Star
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mohi_eadweard_ver01%2Fdata%2Fsn90061556%2F00200292066%2F1917070701%2F0213.jp2/pct:29.311048,29.859155,12.617203,10.687655/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
-
-#### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-o his na-achieve  
-WARNS AGAINST RACIAL HATRED.  
-It is so unusual for a Christian  
-minister to preach against racial hat­  
-red that THE APPEAL is pleased to  
-note that one minister has the cour­  
-age of his convictions.  
-,In his sermon last Sunday, Rev. H.  
-E. Peabody, pastor of the South Con­  
-gregational Church, in Chicago, said  
-V. 1  
-QM  
-&#x27;&amp;&quot;  
-tive land, THE APPEAL believes that  
-every American has the right to ex- lings of democracy are being heard,  
-pect every right and privilege ac­  
-corded to every other American. No  
-land is a democracy in which there  
-are two classes of citizens.  
-These are the days that we should  
-feel patriotic. One hundred and forty­  
-one years ago the United States shook  
-off the bonds of Great Britain and be­  
-came independent.  
-The Declaration of Independence  
-states that &quot;all men are created equal  
-and endowed by their creator with cer­  
-tain inalienable rights among which  
-are life, liberty and the pursuit of  
-happiness. After one hundred and  
-forty-one years this ideal has not been  
-realized and our much vaunted de­  
-mocracy is largely a sham, but some  
-progress has been made.  
-We are now at war and it is claimed  
-that we are fighting for world-wide  
-democracy, and in spite of the fact  
-that many forces have been at work  
-in recent years to retard the growth  
-of democracy, THE APPEAL believes  
-that the end of the war will find the  
-United States further advanced in true  
-democracy than may appear possible  
-at the present time, and in spite of it­  
-self.  
-Not only the United States but in  
-the whole world we are about to enter  
-an era- in which the basic principle  
-will be human brotherhood
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:4.358494,67.891633,25.834226,29.321408/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mohi_eadweard_ver01%2Fdata%2Fsn90061556%2F00200292066%2F1917070701%2F0213.jp2/pct:29.311048,28.666114,12.617203,12.460646/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3180,7 +3286,6 @@ will be human brotherhood
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-to fill U. S. Army ranks in the volun­  
 teer army. Colored men are not per­  
 mitted to enlist and must wait for the  
 draft. THE ILLINOIS HORROR  
@@ -3715,7 +3820,6 @@ neaththese are the hell belowan
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-to fill U. S. Army ranks in the volun­  
 teer army. Colored men are not per­  
 mitted to enlist and must wait for the  
 draft. THE ILLINOIS HORROR  
@@ -4021,9 +4125,13 @@ ciation for the Advancement of Col- mountain tops
 ored People, Walling, in his telegram,  
 said.  
 There must be swift and severe pun- (Baltimore (Md.) Commonwealth)  
-ishment for the mob. But this will not President Wilson cannot consistent
+ishment for the mob. But this will not President Wilson cannot consistent-  
+suffice. There should be an immedi-,ly contend for liberty, equality and  
+ate presidential proclamation in the-justice for Belgians, Russians Poles  
+present military exigency that the full French, English and Teutons without  
+military power of the nation will be,conceding justice, liberty and equal
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:45.447143,8.905434,25.290632,83.961838/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:45.415479,8.905434,25.322296,85.776446/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4290,16 +4398,6 @@ H. Lewis, Boston, Mass
 
 ---
 
-## THE ILLINOIS RACE WAR AND ITS BRUTAL AFTERMATH
-
-#### From _Current Opinion (1913-1925)_
-
-#### 1917-08-01 &middot; [New York](http://dbpedia.org/resource/New_York_City)
-
-[This text is not available under an open license.]
-
----
-
 ## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-11/ed-1/seq-2)
 
 #### 1917-08-11 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
@@ -4348,6 +4446,28 @@ this American city. Nothing more re­
 volting was ever charged against Ne
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:17.621046,34.392153,12.738595,22.598980/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-11/ed-1/seq-2)
+
+#### 1917-08-11 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+Memphis than in any other city in  
+proportion to the population.  
+The National Evangelistic Alliance  
+of America has appealed to President  
+Wilson that flags on public buildings  
+be at half-mast on Sunday, July 29th,  
+in memory of persons who lost their  
+lives in the East St. Louis riots
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:43.206534,43.772126,12.084292,5.375296/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4412,7 +4532,14 @@ volting was ever charged against Ne-
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+believe the riots were deliberatelv  
+plotted Indolent public oflBcials heard  
+the rumblings, but over-awed by cow­  
+ardly inclinations, remained inactive  
+A flame of passion and unreasoning  
+violenceall introduced into the com­  
+munity by intriguing ringleaders­  
+caused white men to shoot and beat  
 to death some of the oldest and most  
 respected colored citizens of East St  
 Louis.  
@@ -4433,7 +4560,7 @@ conceding justice, liberty and equal­
 ity to ALL citizens of his own coun­  
 try.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081801%2F0610.jp2/pct:45.725251,48.970355,11.964002,9.853554/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081801%2F0610.jp2/pct:45.725251,45.246177,11.999294,13.577733/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4613,8 +4740,7 @@ B
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-favor­  
-able conditions so far as real man­  
+  
 hood is concerned, but he is unwill­  
 ing to advocate what he has to accept  
 aa the policy of his race. We take  
@@ -4641,7 +4767,7 @@ Planet. That is our eternal gospel,
 preach it in the valleys and on the  
 mountain tops
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090101%2F0619.jp2/pct:56.199546,81.025591,15.659864,14.774091/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090101%2F0619.jp2/pct:56.199546,81.943498,15.659864,13.856184/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4654,12 +4780,11 @@ mountain tops
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-fo  
 &quot;Negroes and Dogs Not Allowed&quot;  
 (From the Nashville Clarion)  
 Down in Houston, Texas are som
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:68.910386,26.147685,11.366385,3.330729/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:68.910386,27.752816,11.366385,1.725597/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4684,17 +4809,9 @@ flag
 hotel in that city. When a protest Fnipmo  
 int 0 tn  
 the most expensive and exclusive 7e havflout Cbimuneen out therde the  
-ouft  
-saidTthae  
-ewant  
-of a man than to have done suc&quot;h&quot;a S t  
-thing where discrimination is unlaw-  
-thie  
-he  
-the^  
-
+ouf
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:55.824264,29.471902,36.866855,11.727551/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:55.824264,29.471902,36.866855,9.611252/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4706,7 +4823,10 @@ the^
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+, and discontinue &quot;jim-crowism,&quot;  
+segregation and general cussedness  
+Black people are insulted when they  
+are asked to accept such as their  
 portion. The trustees of Hampton  
 and Tuskegee should recognize the  
 fact that their work must fail if they  
@@ -4728,7 +4848,7 @@ We have no respect for a servile^
 cringing colored man. He is of more  
 service to his people under the so
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:55.622733,70.427167,14.299790,23.549521/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:55.622733,68.590871,14.299790,25.385818/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4957,7 +5077,14 @@ mountain tops
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+ be  
+(From the Christian Register, Boston.) given to both white and colored men  
+The mutiny of colored soldiers, and among the selected forces to volunteer  
+their murderous procedure, is pecul-  
+which has a cantonment in it will be  
+service and training in certain  
+lines of communication organizations,  
+which is necessary to form,~and it is&#x27;  
 hoped that an adequate number will  
 combatant service, but there will be  
 both combatant and noncombatant or­  
@@ -4976,7 +5103,7 @@ Planet That is our eternal gospel
 preach it in the valleys and on the  
 mountain tops
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917092901%2F0637.jp2/pct:54.923936,85.522051,12.237825,9.314737/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917092901%2F0637.jp2/pct:42.519579,80.453786,24.646683,14.383001/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4989,7 +5116,6 @@ mountain tops
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-I  
 Hates the Term &quot;Negro.&quot; P  
 &quot;I hate the term Negro because it  
 is being used in terms of hatred. It  
@@ -5007,7 +5133,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm  
 H. Lewis, Boston, Mass.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917092901%2F0637.jp2/pct:67.782879,29.208002,13.331533,31.954949/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917092901%2F0637.jp2/pct:67.782879,53.517991,13.331533,7.644960/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5020,8 +5146,6 @@ H. Lewis, Boston, Mass.
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-test against the adoption of this policy,  
-1  
 S  
 to realize the ofl  
 by the federal government in the in- Negro it is being used in contempt K,i&#x27; 7  
@@ -5033,9 +5157,34 @@ the interstate commerce law and the tenth of one per cent of the colored
 spirit of American institutions, and People in America can trace their  
 which, if adopted, is bound to pro- descent to Africa, and there ls no  
 voke increasing inter-racial resent-! more right to call all colored people  
-ment and conflict. Negroes than to call all white peopl
+ment and conflict. Negroes than to call all white people  
+In making this protest, we beg to Turks or Armenians.&quot;Ex-Assistan
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917100601%2F0641.jp2/pct:57.101489,55.150868,28.786028,16.255504/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-10-06/ed-1/seq-2)
+
+#### 1917-10-06 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+PEA from the fatal error into which Nationalit under the sun. As a red  
+it has fallen. flag to flout into the face of the bull,  
+As a matter of fact, Mr. Boddy we have Chinamen out there, the  
+dodged the issue either because he Filipino out there, the Greek out there,  
+feared to meet it squarely or would the Hebrew out there, the Italian out  
+try to lure me from the point go as there, and God himself only knows  
+to palliate THE APPEAL&#x27;S discom- what else out there, but we do know  
+fiture or to engage my attention in an- that if we are anywhere near there  
+other quarter where he thought I we are near the bathroom with a mop  
+would be easier prey. Mr. Boddy has, and broom. Space must.be made fo
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917100601%2F0641.jp2/pct:44.183521,89.274152,24.795258,4.542217/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5064,10 +5213,7 @@ the white people of the United States
 today than the spreading use of this  
 unfortunate term. Why? They real­  
 ize that it is the most potential fac­  
-tor at work at the present to bring  
-about both a physical and mental  
-segregation of the people of color. Its  
-use is on the increase only becaus
+tor at work at the present to brin
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917100601%2F0641.jp2/pct:57.486087,7.640508,29.908149,81.588319/!600,600/0/default.jpg"/>
 </td>
@@ -5157,12 +5303,9 @@ service to his people under the sodN.
 than on top of itRichmond {Y&amp;)_  
 Planet. That is our eternal gospel,  
 preach^it in the valleys and on, thegovernment,  
-mountain:&#x27;tops  
-^ilr-  
-%I  
-Colored Chicagoans Wire Presiden
+mountain:&#x27;top
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917102001%2F0649.jp2/pct:44.808526,7.799416,24.405236,88.727686/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917102001%2F0649.jp2/pct:44.808526,80.915287,16.281949,14.897760/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5174,7 +5317,22 @@ Colored Chicagoans Wire Presiden
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+he  
+Southern whites for two centuries,  
+when formally speaking or writing  
+about an unworthy or criminal man  
+or woman of the race. For when he  
+speaks of the worthy he invariably  
+says &quot;colored.&quot;  
+It is not differentiated in the  
+mind and thought of the whites from  
+their favorite and generally used  
+(among themselves) terms, &quot;Nigro&quot;  
+and &quot;Nigger.&quot;  
+g. As stated by an eminent Jap­  
+anese diplomat it has an unquestioned  
+influence in cutting us off from the  
+thought, sympathy and co-operation  
 of the millions of colored Africans,  
 Asiatics and Islanders of the Yonder  
 world.  
@@ -5197,7 +5355,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917102001%2F0649.jp2/pct:69.899178,51.200909,12.204829,11.139241/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917102001%2F0649.jp2/pct:69.881489,43.914314,12.222517,18.425836/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5209,8 +5367,7 @@ H. Lewis, Boston, Mass
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-most unfavor­  
-able conditions so far as real man­  
+  
 hood is concerned, but he is unwill­  
 ing to advocate what he has to accept  
 aa the policy of his race We take  
@@ -5240,7 +5397,7 @@ preach it in the valleys and on
 theTwenty-fourth  
 mountain tops. _
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917102701%2F0653.jp2/pct:44.309970,80.553144,16.615685,14.751568/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917102701%2F0653.jp2/pct:44.309970,81.466474,16.615685,13.838238/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5376,15 +5533,9 @@ that if we are anywhere n^ar there
 we are near the bathroom with a mop  
 and broom. Space must be made for  
 the boy of the Colored race in the  
-school for which we are paying taxes.  
-Worse to Ask for Jim Crow.  
-(From the Cleveland Gazette.)  
-We agree with the editor of the  
-N. Y. News: It is bad enough to have  
-segregated (or &quot;jim crow&quot;) military  
-training camps FORCED on us by th
+school for which we are paying taxes
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1917111001%2F0003.jp2/pct:43.379998,73.472429,13.038704,21.334658/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1917111001%2F0003.jp2/pct:43.379998,73.472429,13.038704,17.221394/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5501,7 +5652,10 @@ school for which we are paying taxes
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+ here, and have al­  
+been mixing for more than a  
+century, and have the rights of citi­  
+zenship, including the right to die with  
 white men for their country, is it any  
 reckonable menace to respectability  
 and intrinsic leadership to open a few  
@@ -5535,7 +5689,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm.  
 Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918022301%2F0064.jp2/pct:69.362048,23.123856,14.862973,36.753440/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918022301%2F0064.jp2/pct:69.362048,21.252796,14.862973,38.624500/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5548,11 +5702,6 @@ Lewis, Boston, Mass
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-Day, at the Grand Theater at 2:00  
-o&#x27;clock in the afternoon, after the  
-monster parade. The other speaker  
-will be Rev. Lester P. Warford, pas­  
-tor of the Presbyterian church.  
 /&#x27;Negroes and Dogs Not Allowed&quot;  
 (From the Nashville Clarion)  
 Down in Houston, Texas axe some  
@@ -5566,16 +5715,9 @@ lating the South. They can be neither
 blamed nor censured for leaving a  
 town like this. They have hearts and  
 souls and human pride, just like the  
-people of other races.  
-5B HHH  
-Should Open the Doors to Opportunity  
-(From the Christian Register.)  
-A circular sent out to employers in  
-a large city, calling attention to the  
-number and quality of young colored  
-men trained in the schools of the city
+people of other races
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918052501%2F0116.jp2/pct:43.947162,4.548421,25.079673,90.539009/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918052501%2F0116.jp2/pct:43.947162,88.106771,12.299663,6.980659/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5662,7 +5804,17 @@ people of other races.
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+ the  
+Southern whites for two centuries,  
+when formally speaking or writing  
+about an unworthy or criminal man  
+or woman of the race For when he  
+speaks of the worthy he invariably  
+says &quot;colored.&quot;  
+f. It is not differentiated in the mind  
+and thought of the whites from their  
+favorite and generally used (among  
+themselves) terms, &quot;Negro&quot; and &quot;Nig-  
 ger.&quot;  
 As stated by an eminent Japanese  
 diplomat it has an unquestioned in­  
@@ -5690,7 +5842,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm.  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918062201%2F0133.jp2/pct:69.638048,49.828708,12.063536,13.182597/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918062201%2F0133.jp2/pct:69.638048,44.655704,12.118308,18.355601/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5796,7 +5948,23 @@ H. Lewis, Boston, Mass
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+fices in all  
+cities are prepared to furnish definite  
+information and application blanks  
+According to the civil service com­  
+mission, the full extent to which the  
+specialized clerk is needed is perhaps  
+not generally understood, and it is in  
+this class of work that women have  
+the best opportunity to be of real serv­  
+ice to the government at this time.  
+Eighteen thousand stenographers and  
+typists are at work constantly in the  
+government offices at Washington, D.  
+C, on the tons of correspondence and  
+records made necessary by war prep­  
+arations on a scale such as the world  
+has never known before.  
 X­  
 Hates the Term &quot;Negro.&quot;  
 &quot;I hate the term Negro because it  
@@ -5815,7 +5983,7 @@ Turks or Armenians.&quot;Ex-Assistant
 United States Attorney General Wm  
 H. Lewis, Boston, Mass
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918071301%2F0145.jp2/pct:81.872638,65.169671,12.229288,8.374145/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1918071301%2F0145.jp2/pct:81.858815,57.104651,12.289190,16.439165/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6108,8 +6276,7 @@ Negroes than to call all white people
 Turks or Armenians.&quot;-Ex-Assistant  
 United States Attorney General Wm  
 K. Lewis, Boston, Mass.  
-&amp;$  
-
+&amp;$
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919011101%2F0251.jp2/pct:83.264139,62.147127,15.001384,35.720950/!600,600/0/default.jpg"/>
 </td>
@@ -6173,14 +6340,9 @@ le}!:KW
 THE MAN WHO DARES  
 I honor the man who in the consci­  
 entious discharge of his duty dares to  
-stand alone the world, -with ignorant,  
-intolerant judgment, may condemn,  
-the countenances of relatives may be  
-averted, and the hearts of friends grow  
-cold, but the sense of duty done shall  
-be sweeter than the applause of th
+stand alone the world, -with ignorant
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919080201%2F0369.jp2/pct:58.835701,6.762480,34.634662,84.826078/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919080201%2F0369.jp2/pct:58.835701,6.762480,34.556491,84.826078/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6192,7 +6354,22 @@ be sweeter than the applause of th
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+ the nation&#x27;  
+signed by 150 citizens throughout the  
+country, including ex-President Taft,  
+Attorney General A. Mitchell Palmer,  
+Dr. Henry Van Dyke, the governors  
+of seven states, including Gov. A. H.  
+Roberts of Tennessee, every living  
+ex-attorney general of the United  
+States, the heads of California, Illi­  
+nois, Princeton, Western Reserve,  
+Fisk and Vanderbilt universities  
+Charles W. Eliot, Elihu Root, Charles  
+Evans Hughes, J. R. Bingham of Mis­  
+sissippi, and Senator Arthur Capper  
+of Kansas.  
+The address is an outcome of the  
 conference on lynching,  
 which was held in New York city  
 May 5 and 6 last.  
@@ -6227,7 +6404,7 @@ town like this. They have hearts and
 souls and human pride, just like the  
 people of other races
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919080901%2F0373.jp2/pct:57.152203,17.281513,12.678163,17.052894/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919080901%2F0373.jp2/pct:57.044722,9.799439,12.785644,24.534968/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6299,10 +6476,9 @@ in which the Colored men are depopu
 lating the South. They can be neith  
 u,blame nor censuredbuildings for leaving  
 talk like a Negro You seem at times town like this. They have heart?  
-to identify yourself with them. Have souls and human pride? just Hke  
-you lost your race consciousness?&quot; 11 people of other races
+to identify yourself with them. Have souls and human pride? just Hk
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919091301%2F0393.jp2/pct:70.288066,71.324314,24.485597,6.754105/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919091301%2F0393.jp2/pct:70.310928,71.324314,24.462734,6.341010/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6315,12 +6491,6 @@ you lost your race consciousness?&quot; 11 people of other races
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the same as you, although  
-our skin may be dark. The white  
-man manufactured both terms and  
-the Government legalizes them and  
-colored Americans perpetuate them.  
-For God&#x27;s sake, give both terms a rest.  
 &quot;Negroes and Dogs Not Allowed&quot;  
 (From the Nashville Clarion)  
 Down in Houston, Texas are some  
@@ -6336,7 +6506,7 @@ town like this. They have hearts and
 souls and human pride, just like the  
 people of other races
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919092001%2F0397.jp2/pct:82.840779,69.342965,12.174112,10.113519/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919092001%2F0397.jp2/pct:82.840779,72.645339,12.174112,6.811146/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6349,11 +6519,6 @@ people of other races
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-aflame, not with the glare of the de­  
-stroying torch, but with the steady,  
-incandescent glow which cannot be  
-extinguished.  
-Washington, July 20. E. G.  
 &quot;Negroes and Dogs Not Allowed&quot;  
 (From the Nashville Clarion)  
 Down in Houston, Texas are some  
@@ -6367,25 +6532,9 @@ lating the South They can be neither
 blamed nor censured for leaving a  
 town like this. They have hearts and  
 souls and human pride, just like the  
-people of other races.  
-WALLER AGAIN8T &quot;NEGRO.  
-Noted Brooklyn Doctor 8ays It Causes  
-Mental and Physical Segregation,  
-(From Amsterdam News.)  
-Editor Amsterdam News:  
-Sir: I cannot too heartily congratu­  
-late you on a recent editorial discour­  
-aging the use of the word &quot;Negro&quot;  
-There is no greater delight enjoyed b\
-the white people of the United States  
-today than the spreading use of this  
-unfortunate term. Why? They real­  
-ise that it is the most potential fac­  
-tor at work at the present to bring  
-about both a physical and mental  
-segregation of the people of color. It
+people of other races
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919092701%2F0401.jp2/pct:69.904241,41.173223,12.029184,19.758454/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919092701%2F0401.jp2/pct:69.904241,44.506556,12.029184,6.821946/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6646,10 +6795,9 @@ lating the South. They can be neither
 blamed nor censured for leaving a  
 town like this. They have hearts and  
 souls and human pride, just like the  
-people of other races.  
-It is sad to think that there ar
+people of other races
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919112201%2F0433.jp2/pct:83.080210,22.009834,12.326413,7.722141/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1919112201%2F0433.jp2/pct:83.080210,22.009834,12.307835,6.697140/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6710,12 +6858,6 @@ H.-Lewis, Boston, Mass
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-citizens, the same as you, although  
-our skin may be dark The white  
-man manufactured both terms and  
-the Government legalizes them and  
-colored Americans perpetuate them.  
-For God&#x27;s sake, give both terms a rest.  
 &quot;Negroes and Dogs Not Allowed&quot;  
 (From the Nashville Clarion)  
 Down in Houston, Texas are some  
@@ -6731,7 +6873,7 @@ town like this. They have hearts and
 souls and human pride, just like the  
 of other races
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1920012401%2F0468.jp2/pct:82.503855,59.730966,12.780971,10.647814/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768066%2F1920012401%2F0468.jp2/pct:82.503855,63.560051,12.631431,6.818729/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

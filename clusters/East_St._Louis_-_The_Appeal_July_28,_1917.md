@@ -1,9 +1,9 @@
 
-# East St. Louis - The Appeal (July 28, 1917).md
+# East_St._Louis_-_The_Appeal_July_28,_1917
 
-### 108 reprints from 1906-10-11 to 1917-09-01
+### 121 reprints from 1906-10-11 to 1917-09-08
 
-## East St. Louis - The Appeal (July 28, 1917).md
+## East_St._Louis_-_The_Appeal_July_28,_1917
 
 #### From unknown source
 
@@ -11,31 +11,29 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ant judgment  
-may condemn the countenances of relatives may be averted and the  
-hearts of friends grow cold but the sense of duty done shall be  
-sweeter than the applause of the world the countenances of relatives  
-or the hearts of friends Charles Sumner  
+duty done shall be      |  
+| sweeter than the applause of the world, the countenances of relatives |  
+| or the hearts of friends.---Charles Sumner.**                         |  
 +=======================================================================+  
-+ +  
++-----------------------------------------------------------------------+  
   
-A LITANY OF ATLANTA  
+**A LITANY OF ATLANTA.**  
   
-In September 1906 there was a brutal massacre of colored people at  
-Atlanta Georgia Scores of colored men women and children were mur  
-dered because of their color Dr W E Burghardt Du Bois wrote the  
+In September, 1906, there was a brutal massacre of colored people at  
+Atlanta, Georgia. Scores of colored men, women and children were mur-  
+dered because of their color. Dr. W. E. Burghardt Du Bois wrote the  
 story of the massacre in the form of a litany which appeared in the New  
-York In dependent shortly after its Occur rence It was done in the  
-day of death  
+York In- dependent shortly after its Occur- rence. It was \&quot;done in the  
+day of death.\&quot;  
   
-The recent massacre at East St Louis so resembles the Atlanta mur  
-iderfest that we print in this issue Du Bois A Litany of Atlanta  
-by ex press permission of the New York In dependent
+The recent massacre at East St. Louis so resembles the Atlanta mur-  
+iderfest that we print in this issue Du Bois\&#x27; \&quot;A Litany of Atlanta,\&quot;  
+by ex- press permission of the New York In- dependent.
 </td></tr></table>
 
 ---
 
-## East St. Louis - The Appeal (July 28, 1917).md
+## East_St._Louis_-_The_Appeal_July_28,_1917
 
 #### From unknown source
 
@@ -43,146 +41,133 @@ by ex press permission of the New York In dependent
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
- East St Louis Ill  
-makes us turn again from the barbari ties of war to the ferocities of  
+ from the barbari ties of war to the ferocities of  
 peace from crimes against civilization abroad to crimes against  
 civilization at home The testimony of eye witnesses shows that nothing  
-is to be learned among white people of this city from the cru elties  
-and brutalities of foreign con quest No tribes of any name or time  
-have ever outdone the white men and women who burned colored men women  
-and children the other day in this American eity Nothing more re  
-volting was ever charged against Ne groes than was done by these white  
-people The organization of the ma
-</td></tr></table>
-
----
-
-## East St. Louis - The Appeal (July 28, 1917).md
-
-#### From unknown source
-
-#### None
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-e and liberty on the seas and for the deliverance  
+is to be learned among white people of this city from the cru- elties  
+and brutalities of foreign con- quest. No tribes of any name or time  
+have ever outdone the white men and women who burned colored men, women  
+and children the other day in this American eity. Nothing more re-  
+volting was ever charged against Ne- groes than was done by these white  
+people. The organization of the man- hood of the nation for the  
+protection of human life and liberty on the seas and for the deliverance  
 of democracy in the world will be needed at home after its task abroad  
-is done Whi our fellow creatures in the United States are hunted and  
-tortured as if they were wild beasts government can scarcely be called  
-democratic So long as colored people are proscribed dis criminated  
-against segregated and despised ill will and antipathy will furnish  
-fertilizers of hatred and mur der  
+is done. Whi our fellow-creatures in the United States are hunted and  
+tortured as if they were wild beasts, government can scarcely be called  
+democratic. So long as colored people are proscribed, dis- criminated  
+against, segregated and despised, ill-will and antipathy will furnish  
+fertilizers of hatred and mur- der.  
   
+------------------------  
   
+**WARNS AGAINST RACIAL HATRED.**  
   
-WARNS AGAINST RACIAL HATRED  
+It is so unusual for a Christian minister to preach against racial hat-  
+red that THE APPEAL is pleased to note that one minister has the cour-  
+age of his convictions.  
   
-It is so unusual for a Christian minister to preach against racial hat  
-red that THE APPEAL is pleased to note that one minister has the cour  
-age of his convictions  
+In his sermon last Sunday, Rev. H. E. Peabody, pastor of the South Con-  
+gregational Church, in Chicago, said that racial hatred within the  
+United States is more dangerous than all Ger- mans outside this country.  
   
-In his sermon last Sunday Rev H E Peabody pastor of the South Con  
-gregational Church in Chicago said that racial hatred within the  
-United States is more dangerous than all Ger mans outside this country  
+Dr. Peabody likened the East St. Louis massacre to the \&quot;atrocities of  
+the unspeakable Turk in Armenia.\&quot;  
   
-Dr Peabody likened the East St Louis massacre to the atrocities of  
-the unspeakable Turk in Armenia  
+\&quot;The country\&#x27;s perils are not all on the sea and beyond,\&quot; said Dr.  
+Pea- body. \&quot;Think of the moral earthquake and volcano that has burst in  
+the midst of the land, in our own state, since last we met.  
   
-The country s perils are not all on the sea and beyond said Dr  
-Pea body Think of the moral earthquake and volcano that has burst in  
-the midst of the land in our own state since last we met  
+\&quot;Who would have believed that a massacre that reminds one of St.  
+Bartholomew\&#x27;s night and of the atroci- ties of the unspeakable Turk in  
+Ar- menia, could occur among our own fellow-citizens in East St. Louis?  
   
-Who would have believed that a massacre that reminds one of St  
-Bartholomew s night and of the atroci ties of the unspeakable Turk in  
-Ar menia could occur among our own fellow citizens in East St Louis  
+\&quot;But, beware! The peril is nearer than that. The mutterings of the vol-  
+cano are felt in Chicago. The single explosion is not the most  
+significant thing. The race prejudice, contempt and hatred,  
+working-working be neath-these are the hell below-and they find some  
+lodgment in all our hearts; God help us.  
   
-But beware The peril is nearer than that The mutterings of the vol  
-cano are felt in Chicago The single explosion is not the most  
-significant thing The race prejudice contempt and hatred  
-working working be neath these are the hell below and they find some  
-lodgment in all our hearts God help us  
+\&quot;There is far more danger to the republic from race hatred within our  
+borders than from all the Germans put together.  
   
-There is far more danger to the republic from race hatred within our  
-borders than from all the Germans put together  
-  
-Christian citizens of Chicago think this thing through Try to make  
+\&quot;Christian citizens of Chicago, think this thing through. Try to make  
 up your mind beforehand what you will do and say when the earthquake and  
   
-the volcano shall be around you Our country is in dire need of clear  
-heads and stout hearts Christian hearts both within and without  
+the volcano shall be around you. Our country is in dire need of clear  
+heads and stout hearts-Christian hearts, both within and without.\&quot;  
   
+------------------------  
   
+**PATRIOTIC MID-YEAR EDITION.**  
   
-PATRIOTIC MID YEAR EDITION  
+This issue is the Patriotic Mid-Year Edition of THE APPEAL.  
   
-This issue is the Patriotic Mid Year Edition of THE APPEAL  
+THE APPEAL is an American news- paper without any hyphen, prefix or  
+suffix.  
   
-THE APPEAL is an American news paper without any hyphen prefix or  
-suffix  
-  
-The editor of THE APPEAL is an American without any hyphen prefix or  
-suffix  
+The editor of THE APPEAL is an American without any hyphen, prefix or  
+suffix.  
   
 THE APPEAL believes that every person born in the United States is an  
-American should feel that he is an American and should be ready to  
-sacri fice all of his possessions and even his life to defend the  
-United States  
+American, should feel that he is an American and should be ready to  
+sacri- fice all of his possessions and even his life to defend the  
+United States.  
   
-In return for his loyalty to his na tive land THE APPEAL believes that  
-every American has the right to ex pect every right and privilege ac  
-corded to every other American No land is a democracy in which there  
-are two classes of citizens  
+In return for his loyalty to his na- tive land, THE APPEAL believes that  
+every American has the right to ex- pect every right and privilege ac-  
+corded to every other American, No, land is a democracy in which there  
+are two classes of citizens.  
   
-These are the days that we should feel patriotic One hundred and forty  
+These are the days that we should feel patriotic. One hundred and forty-  
 one years ago the United States shook off the bonds of Great Britain and  
-be came independent  
+be- came independent.  
   
-The Declaration of Independence states that all men are created equal  
-and endowed by their creator with cer tain inalienable rights among  
-which are life liberty and the pursuit of happiness After one hundred  
-and forty one years this ideal has not been realized and our much  
-vaunted de mocracy is largely a sham but some progress has been made  
+The Declaration of Independence states that \&quot;all men are created equal  
+and endowed by their creator with cer- tain inalienable rights among  
+which are life, liberty and the pursuit of happiness. After one hundred  
+and forty-one years this ideal has not been realized and our much  
+vaunted de- mocracy is largely a sham, but some progress has been made.  
   
-We are now at war and it is claimed that we are fighting for world wide  
-democracy and in spite of the fact that many forces have been at work  
-in recent years to retard the growth of democracy THE APPEAL believes  
+We are now at war and it is claimed that we are fighting for world-wide  
+democracy, and in spite of the fact that many forces have been at work  
+in recent years to retard the growth of democracy, THE APPEAL believes  
 that the end of the war will find the United States further advanced in  
-true democracy than may appear possible at the present time and in  
-spite of it self  
+true democracy than may appear possible at the present time, and in  
+spite of it self.  
   
 Not only the United States but in the whole world we are about to enter  
-an era in which the basic principle will be human brotherhood  
+an era in which the basic principle will be human brotherhood.  
   
+------------------------  
   
-  
-The Year Book of the Federal Coun cil of the Churches of Christ in Amer  
-ica for 1917 states that 747 000 people joined the church during the  
-year 1916 Judging by the evidences of Christianity as exemplified by  
-the so called Christians in the country joining the church is  
-largely a mat ter of hypocrisy The people of the United States are  
+The Year Book of the Federal Coun- cil of the Churches of Christ in Amer  
+ica for 1917 states that 747,000 people \&quot;joined the church\&quot; during the  
+year 1916. Judging by the evidences of Christianity as exemplified by  
+the so- called Christians in the country, \&quot;joining the church\&quot; is  
+largely a mat- ter of hypocrisy. The people of the United States are  
 further from true Christianity than ever before in the history of the  
-nation  
+nation.  
   
+------------------------  
   
+Charles Edward Russell, a member of the American Commission to Rus- sia,  
+appeals to the American people to help Russia build a republic. Per-  
+haps in the years to come when the Russian republic has been built, some  
+great Russian will aid the establish- ment in America a republic which  
+knows neither race, creed nor color.  
   
-Charles Edward Russell a member of the American Commission to Rus sia  
-appeals to the American people to help Russia build a republic Per  
-haps in the years to come when the Russian republic has been built some  
-great Russian will aid the establish ment in America a republic which  
-knows neither race creed nor color  
-  
-  
+------------------------  
   
 The National Evangelistic Alliance of America has appealed to President  
-Wilson that flags on public buildings be at half mast on Sunday July  
-29th in memory of persons who lost their lives in the East St Louis  
-riots  
+Wilson that flags on public buildings be at half-mast on Sunday, July  
+29th, in memory of persons who lost their lives in the East St. Louis  
+riots.  
 
 </td></tr></table>
 
 ---
 
-## East St. Louis - The Appeal (July 28, 1917).md
+## East_St._Louis_-_The_Appeal_July_28,_1917
 
 #### From unknown source
 
@@ -190,187 +175,207 @@ riots
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-of the  
-local chapter is planning to institute suits under the Illinois  
-statutes against the city of East St Louis and St Clair county for  
-personal damages on be half of the dependents of the Negro men and  
+--  
+  
+**The Shame of Illinois.**  
+  
+(From the Chicago Tribune.)  
+  
+The riot at East St. Louis is one of the worst blots on the good name of  
+an American community in our whole history. Illinois must bow her head  
+in shame before this disgrace. We have no excus
+</td></tr></table>
+
+---
+
+## East_St._Louis_-_The_Appeal_July_28,_1917
+
+#### From unknown source
+
+#### None
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+pter, is planning to institute suits under the Illinois  
+statutes against the city of East St. Louis and St. Clair county for  
+personal damages on be- half of the dependents of the Negro men and  
 women who died at the hands of the incensed mobs in the orgy of murder  
-and arson several days ago  
+and arson several days ago.  
   
-Under the statutes the dependents have actions against both the city  
-and the county for damages to property life and limb the judgments not  
-to ex ceed $5 000 in each case This may mean suits for nearly  
-$1 000 000 when the final loss of the scores killed the hundreds  
-injured and the many homes destroyed is recorded  
+Under the statutes, the dependents have actions against both the city  
+and the county for damages to property, life and limb, the judgments not  
+to ex- ceed \$5,000 in each case. This may mean suits for nearly  
+\$1,000,000 when the final loss of the scores killed, the hundreds  
+injured and the many homes destroyed is recorded.  
   
-A LITANY OF ATLANTA  
+**A LITANY OF ATLANTA**  
   
-BY DR W E BURGHARDT DU BOIS  
+**BY DR. W. E. BURGHARDT DU BOIS**  
   
-IN THE NEW YORK INDEPENDENT  
+**IN THE NEW YORK INDEPENDENT**  
   
-+ +  
-A Litany of Atlanta  
-  
-Silent God Thou whose voice afar in mist and mystery hath left our  
-ears an hungered in these fearful days  
-  
-Hear us good Lord  
-  
-Listen to us Thy children our faces dark with doubt are made a  
-mockery in Thy sanctuary With uplifted hands we front Thy heaven O  
-God crying  
-  
-We beseech Thee to hear us good Lord  
-  
-We are not better than our fellows Lord we are but weak and human  
-men When our devils do deviltry curse Thou the doer and the deed  
-curse them as we curse them do to them all and more than ever they  
-have done to innocerce and weakness to womanhood and home  
-  
-Have mercy upon us miserable sinners  
-  
-And yet whose is the deeper guilt Who made these devils Who nursed  
-them in crime and fed them on injustice Who ravished and debauched  
-their mothers and their grandmothers Who bought and sold their  
-crime and waxed fat and rich on public iniquity  
-  
-Thou knowest good God  
-  
-Is this Thy justice O Father that guile be easier than innocence  
-and the innocent crucified for the guilt of the untouched guilty  
-  
-Justice O Judge of men  
-  
-Wherefore do we pray Is not the God of the fathers dead Have not  
-seers seen in Heaven s halls Thine hearsed and lifeless form stark  
-amidst the black and rolling smoke of sin where all along bow bitter  
-forms of endless dead  
-  
-Awake Thou that sleepest  
-  
-Thou art not dead but flown afar up hills of endless light thru  
-blazing corridors of suns where worlds do swing of good and gentle  
-men of women strong and free far from the cozenage black hypocrisy  
-and chaste prostitution of this shameful speck of dust  
-  
-Turn again O Lord leave us not to perish in our sin  
-  
-From lust of body and lust of blood  
-  
-Great God deliver us  
++-----------------------------------------------------------------------+  
+| **A Litany of Atlanta**                                               |  
+|                                                                       |  
+| Silent God, Thou whose voice afar in mist and mystery hath left our   |  
+| ears an-hungered in these fearful days-                               |  
+|                                                                       |  
+| *Hear us, good Lord !*                                                |  
+|                                                                       |  
+| Listen to us, Thy children: our faces dark with doubt, are made a     |  
+| mockery in Thy sanctuary. With uplifted hands we front Thy heaven, O  |  
+| God, crying:                                                          |  
+|                                                                       |  
+| *We beseech Thee to hear us, good Lord !*                             |  
+|                                                                       |  
+| We are not better than our fellows, Lord, we are but weak and human   |  
+| men. When our devils do deviltry, curse Thou the doer and the deed:   |  
+| curse them as we curse them, do to them all and more than ever they   |  
+| have done to innocerce and weakness, to womanhood and home.           |  
+|                                                                       |  
+| *Have mercy upon us, miserable sinners !*                             |  
+|                                                                       |  
+| And yet whose is the deeper guilt? Who made these devils? Who nursed  |  
+| them in crime and fed them on injustice? Who ravished and debauched   |  
+| their mothers and their grandmothers? Who bought and sold their       |  
+| crime, and waxed fat and rich on public iniquity?                     |  
+|                                                                       |  
+| *Thou knowest, good God !*                                            |  
+|                                                                       |  
+| Is this Thy justice, O Father, that guile be easier than innocence,   |  
+| and the innocent crucified for the guilt of the untouched guilty?     |  
+|                                                                       |  
+| *Justice, O Judge of men !*                                           |  
+|                                                                       |  
+| Wherefore do we pray? Is not the God of the fathers dead? Have not    |  
+| seers seen in Heaven\&#x27;s halls Thine hearsed and lifeless form stark   |  
+| amidst the black and rolling smoke of sin, where all along bow bitter |  
+| forms of endless dead?                                                |  
+|                                                                       |  
+| *Awake, Thou that sleepest !*                                         |  
+|                                                                       |  
+| Thou art not dead, but flown afar, up hills of endless light, thru    |  
+| blazing corridors of suns, where worlds do swing of good and gentle   |  
+| men, of women strong and free-far from the cozenage, black hypocrisy  |  
+| and chaste prostitution of this shameful speck of dust!               |  
+|                                                                       |  
+| *Turn again, O Lord, leave us not to perish in our sin !*             |  
+|                                                                       |  
+| From lust of body and lust of blood                                   |  
+|                                                                       |  
+| *Great God deliver us !*                                              |  
 +=======================================================================+  
-+ +  
++-----------------------------------------------------------------------+  
   
-+ +  
-FROM lust of power and lust of gold  
-  
-Great God deliver us  
-  
-From the leagued lying of despot and of brute  
-  
-Great God deliver us  
-  
-A city lay in travail God our Lord and from her loins sprang twin  
-Murder and Black Hate Red was the midnight clang crack and cry  
-of death and fury filled the air and trembled underneath the stars  
-when church spires pointed silently to Thee And all this was to sate  
-the greed of greedy men who hide behind the veil of vengeance  
-  
-Bend us Thine ear O Lord  
-  
-In the pale still morning we looked upon the deed We stopped our  
-ears and held our leaping hands but they did they not wag their  
-heads and leer and cry with bloody jaws Cease from Crime The word  
-was mockery for thus they train a hundred crimes while we do cure  
-one  
-  
-Turn again our captivity O Lord  
-  
-Behold this maimed and broken thing dear God it was an humble black  
-man who toiled and sweat to save a bit from the pittance paid him  
-They told him Work and Rise He worked Did this man sin Nay but  
-some one told how some one said another did one whom he had never  
-seen nor known Yet for that man s crime this man lieth maimed and  
-murdered his wife naked to shame his children to poverty and  
-evil  
-  
-Hear us O heavenly Father  
-  
-Doth not this justice of hell stink in Thy nostrils O God How long  
-shall the mounting flood of innocent blood roar in Thine ears and  
-pound in our hearts for vengeance Pile the pale frenzy of blood  
-crazed brutes who do such deeds high on Thine altar Jehovah Jireh  
-and burn it in hell forever and forever  
-  
-Forgive us good Lord we know not what we say  
-  
-Bewildered we are and passion tost mad with the madness of a mobbed  
-and mocked and murdered people straining at the armposts of Thy  
-Throne we raise our shackled hands and charge Thee God by the  
-bones of our stolen fathers by the tears of our dead mothers by the  
-very blood of Thy crucified Christ What meaneth this Tell us the  
-Plan give us the Sign  
-  
-Keep not thou silence O God  
++-----------------------------------------------------------------------+  
+| FROM lust of power and lust of gold,                                  |  
+|                                                                       |  
+| *Great God deliver us!*                                               |  
+|                                                                       |  
+| From the leagued lying of despot and of brute,                        |  
+|                                                                       |  
+| *Great God deliver us!*                                               |  
+|                                                                       |  
+| A city lay in travail, God our Lord, and from her loins sprang twin   |  
+| Murder and Black Hate. Red was the midnight; clang, crack\&quot; and cry   |  
+| of death and fury filled the air and trembled underneath the stars    |  
+| when church spires pointed silently to Thee. And all this was to sate |  
+| the greed of greedy men who hide behind the veil of vengeance!        |  
+|                                                                       |  
+| *Bend us Thine ear, O Lord!*                                          |  
+|                                                                       |  
+| In the pale, still morning we looked upon the deed. We stopped our    |  
+| ears and held our leaping hands, but they-did they not wag their      |  
+| heads and leer and cry with bloody jaws: Cease from Crime! The word   |  
+| was mockery, for thus they train a hundred crimes while we do cure    |  
+| one.                                                                  |  
+|                                                                       |  
+| *Turn again our captivity, O Lord!*                                   |  
+|                                                                       |  
+| Behold this maimed and broken thing; dear God it was an humble black  |  
+| man who toiled and sweat to save a bit from the pittance paid him.    |  
+| They told him: Work and Rise. He worked. Did this man sin?. Nay, but  |  
+| some one told how some one said another did-one whom he had never     |  
+| seen nor known. Yet for that man\&#x27;s crime this man lieth maimed and   |  
+| murdered, his wife naked to shame, his children, to poverty and       |  
+| evil..                                                                |  
+|                                                                       |  
+| *Hear us, O heavenly Father!*                                         |  
+|                                                                       |  
+| Doth not this justice of hell stink in Thy nostrils, O God? How long  |  
+| shall the mounting flood of innocent blood roar in Thine ears and     |  
+| pound in our hearts for vengeance? Pile the pale frenzy of blood-     |  
+| crazed brutes who do such deeds high on Thine altar, Jehovah Jireh,   |  
+| and burn it in hell forever and forever!                              |  
+|                                                                       |  
+| *Forgive us, good Lord; we know not what we say !*                    |  
+|                                                                       |  
+| Bewildered we are, and passion-tost, mad with the madness of a mobbed |  
+| and mocked and murdered people; straining at the armposts of Thy      |  
+| Throne, we raise our shackled hands and charge Thee, God, by the      |  
+| bones of our stolen fathers, by the tears of our dead mothers, by the |  
+| very blood of Thy crucified Christ: What meaneth this? Tell us the    |  
+| Plan; give us the Sign!                                               |  
+|                                                                       |  
+| *Keep not thou silence, O God!*                                       |  
 +=======================================================================+  
-+ +  
++-----------------------------------------------------------------------+  
   
-+ +  
-SIT no longer blind Lord God deaf to our prayer and dumb to our  
-dumb suffering Surely Thou too art not white O Lord a pale  
-bloodless heartless thing  
-  
-Ah Christ of all the Pities  
-  
-Forgive the thought Forgive these wild blasphemous words Thou art  
-still the God of our black fathers and in Thy soul s soul sit some  
-soft darkenings of the evening some shadowings of the velvet night  
-  
-But whisper speak call great God for Thy silence is white terror to  
-our hearts The way O God show us the way and point us the path  
-  
-Whither North is greed and South is blood within the coward and  
-without the liar Whither To death  
-  
-Amen Welcome dark sleep  
-  
-Whither To life But not this life dear God not this Let the cup  
-pass from us tempt us not beyond our strength for there is that  
-clamoring and clawing within to whose voice we would not listen yet  
-shudder lest we must and it is red Ah God It is a red and awfel  
-shape  
-  
-Selah  
-  
-In yonder East trembles a star  
-  
-Vengeance is mine I will repay saith the Lord  
-  
-Thy will O Lord be done  
-  
-Kyrie Eleison  
-  
-Lord we have done these pleading wavering words  
-  
-We beseech Thee to hear us good Lord  
-  
-We bow our heads and hearken soft to the sobbing of women and little  
-children  
-  
-We beseech Thee to hear us good Lord  
-  
-Our voices sink in silence and in night Hear us good Lord  
-  
-In night O God of a godless land Amen  
-  
-In silence O Silent God  
-  
-Selah  
++-----------------------------------------------------------------------+  
+| SIT no longer blind, Lord God, deaf to our prayer and dumb to our     |  
+| dumb suffering. Surely Thou too art not white, O Lord, a pale,        |  
+| bloodless, heartless thing?                                           |  
+|                                                                       |  
+| Ah! Christ of all the Pities!                                         |  
+|                                                                       |  
+| Forgive the thought! Forgive these wild, blasphemous words. Thou art  |  
+| still the God of our black fathers, and in Thy soul\&#x27;s soul sit some  |  
+| soft darkenings of the evening, some shadowings of the velvet night.  |  
+|                                                                       |  
+| But whisper-speak-call, great God, for Thy silence is white terror to |  
+| our hearts! The way, O God, show us the way and point us the path.    |  
+|                                                                       |  
+| Whither? North is greed and South is blood; within, the coward, and   |  
+| without, the liar. Whither? To death?                                 |  
+|                                                                       |  
+| *Amen! Welcome dark sleep !*                                          |  
+|                                                                       |  
+| Whither? To life? But not this life, dear God, not this. Let the cup  |  
+| pass from us, tempt us not beyond our strength, for there is that     |  
+| clamoring and clawing within, to whose voice we would not listen, yet |  
+| shudder lest we must, and it is red, Ah! God! It is a red and awfel   |  
+| shape.                                                                |  
+|                                                                       |  
+| *Selah!*                                                              |  
+|                                                                       |  
+| In yonder East trembles a star.                                       |  
+|                                                                       |  
+| *Vengeance is mine; I will repay, saith the Lord!*                    |  
+|                                                                       |  
+| Thy will, O Lord. be done!                                            |  
+|                                                                       |  
+| *Kyrie Eleison!*                                                      |  
+|                                                                       |  
+| Lord, we have done these pleading, wavering words.                    |  
+|                                                                       |  
+| *We beseech Thee to hear us, good Lord!*                              |  
+|                                                                       |  
+| We bow our heads and hearken soft to the sobbing of women and little  |  
+| children.                                                             |  
+|                                                                       |  
+| *We beseech Thee to hear us, good Lord!*                              |  
+|                                                                       |  
+| Our voices sink in silence and in night. Hear us, good Lord!          |  
+|                                                                       |  
+| *In night, O God of a godless land! Amen!*                            |  
+|                                                                       |  
+| In silence, O Silent God.                                             |  
+|                                                                       |  
+| *Selah!*                                                              |  
 +=======================================================================+  
-+ +  
++-----------------------------------------------------------------------+  
   
-Done at Atlanta in the Day of Death 1906 W
+**Done at Atlanta, in the Day of Death, 1906
 </td></tr></table>
 
 ---
@@ -398,8 +403,21 @@ left our ears an-hungered in these fearful days
 Hear us, good Lord I  
 &amp; L&#x27;sten to us, Th children  
 a mockery in Thy sanctuary,  
-heaven, O God, crying:  
-We beseech Thee to hear us, good Lord!  
+heaven, O God, crying
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906102701%2F0228.jp2/pct:9.588792,67.068111,22.752911,5.782141/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1906-10-27/ed-1/seq-2)
+
+#### 1906-10-27 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+to hear us, good Lord!  
 our faces dark with doubt, are made  
 With uplifted hands we front Thy  
 J* W arc not better than our ellowr, Lord, we are but weak? and  
@@ -424,10 +442,9 @@ J* J* Thou art not dead, but flown afar,&quot; up liills of endless fight,
 thru blazing corridors of suns, where worlds do swing of good and-V:  
 gentle men, of women strong and freefar from the cozenage, black \&#x27;*&#x27;&amp;  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
-Turn again, 0 Lord, leave us not to perish in our sin  
-J*, From lust of body and,!ust of blood V:%3
+Turn again, 0 Lord, leave us not to perish in our si
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906102701%2F0228.jp2/pct:9.438683,67.068111,23.812773,25.655298/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906102701%2F0228.jp2/pct:9.438683,71.156766,23.812773,20.537732/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -509,26 +526,9 @@ J J Whither?, life? But not thfr life, dear God, not this. Let
 the cup pass from^s, tempt us not beyond our strength, for there is  
 that clamoring and clawing within, to whose voice we would not listen,  
 yet shudder lest we must, and it is red, Ah! God! It is a red and  
-awful shape.  
-Selahl -j  
-&amp; S\n yonder East trembles a star.  
-y^geance is mine 1willrepay, saith the Lord!  
-J* J* Th will, O Lord, be done!  
-Kyrie Eleison! V\/,&#x27;&#x27;\
-sof  
-jfc Lord,ewe have doneto? theshee pleading,Lord! ^seech Thee hear us, good  
-S  
-y-  
-ald  
-tO  
-W  
-V,J In silence, O Silent God.  
-Setor^  
-Done at Atlanta, in the Day of Death! 1906.  
-A  
-
+awful shape
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906102701%2F0228.jp2/pct:66.716703,67.209797,25.509461,28.853355/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906102701%2F0228.jp2/pct:69.127547,67.209797,23.098617,13.089094/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -573,10 +573,9 @@ thru blazing &#x27;corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin I Ar&quot;  
-From lust of body and lust of blood ^&#x27;V^  
-Great God deliver us I ^-&#x27;t&#x27; -
+From lust of body and lust of blood ^&#x27;V
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906110301%2F0232.jp2/pct:8.477895,67.028251,23.152575,26.426061/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906110301%2F0232.jp2/pct:8.477895,67.028251,23.152575,25.665720/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -620,10 +619,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tearsof our dead mothers, by  
 the very blood of Thy crucified Christ: What mtaneth this? Tell us  
-the Plan give us the Sign!  
-3$fc3 Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906110301%2F0232.jp2/pct:38.710559,70.954988,23.038747,22.658151/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906110301%2F0232.jp2/pct:38.710559,70.954988,23.038747,21.870776/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -666,10 +664,9 @@ We beseech Thee to hear us, good Lord! v*v
 J* Cfur voices sink in silence&#x27;and in night.  
 Hear us, good Lord7  
 In night, O God of a godless land!  
-!&amp;&#x27; Amen! &quot;&quot;&#x27;K  
-J* In slfence, tfSilent God Ife&#x27;Vl
+!&amp;&#x27; Amen! &quot;&quot;&#x27;
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906110301%2F0232.jp2/pct:69.034285,67.298594,23.143469,25.648824/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1906110301%2F0232.jp2/pct:69.034285,67.298594,23.143469,24.550554/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -682,7 +679,6 @@ J* In slfence, tfSilent God Ife&#x27;Vl
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-a ittang of atlanta  
 Silent Go^, Thoa whose voice afar in mist and mystery hath  
 left our ears an-hungered1 in these fearful days  
 Hear QS, good Lord  
@@ -713,11 +709,9 @@ Thou art not dead, but flown afar, up hills of endless light,
 thru biasing corridors of suns, where worlds do swing of good and  
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
-Turn again, OLord, leave us not to perishJn our sin!  
-j J* From lust of body and lust of bipod  
-Great God deliver us! &quot;
+Turn again, OLord, leave us not to perishJn our sin
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1907100501%2F0433.jp2/pct:9.208103,68.185068,24.203499,26.871617/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1907100501%2F0433.jp2/pct:9.208103,70.244783,24.203499,23.007524/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -767,10 +761,9 @@ a mobbed and mocked and murdered people straining at the,****
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, t^frSi I  
 the very blood of Thy crucified Christ: What meaneth this? Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1907100501%2F0433.jp2/pct:39.604052,59.316379,23.931860,35.433902/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1907100501%2F0433.jp2/pct:39.604052,59.316379,23.931860,34.701937/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -811,11 +804,9 @@ We beseech Thee to hear us, good Lord!
 J* J* Our yokes sink in silence and in night.  
 Hear us, good Lord!  
 j* j* In night, O&#x27;God of a godless land!  
-^Amen!  
-j &amp; In silence, O Silent God*  
-Setah
+^Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1907100501%2F0433.jp2/pct:70.174954,67.701631,23.365562,26.408607/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768029%2F1907100501%2F0433.jp2/pct:70.174954,67.701631,23.365562,24.852756/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -846,8 +837,7 @@ the history of the woild The exact
 number killed will never he known as  
 the news was suppressed by the au-  
 vthe  
-From the leagued lying: of despot and of brute*  
-Great God detfber u
+From the leagued lying: of despot and of brute
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:6.888507,52.303882,19.243805,39.342427/!600,600/0/default.jpg"/>
 </td>
@@ -892,10 +882,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers,  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-Plan give us the Sign! _,  
-Keep not thou silence, 0 God
+Plan give us the Sign! _
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:9.595493,69.564332,22.316123,22.743621/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:9.595493,69.564332,22.316123,22.081976/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -908,7 +897,6 @@ Keep not thou silence, 0 God
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-One little hand went up  
 9 1 Uttanp of. Atlanta  
 Silent God, Thou whose voice afar in mist and mystery hath  
 left our ears an-hungered in these fearful days  
@@ -941,12 +929,9 @@ iissr#v
 JL Thou art not dead, but flown afar, up hills of endless light,  
 thru blazing corridors of suns, where worlds do swing of good and  
 gentle men, of women strong and freefar from the cozenage, black  
-hypocrisy and chaste prostitution of this shameful speck of dust I  
-Torn Igain, O Lord, leant- us not to perish in our sin  
-J* Jt From lustjof body and lust of blood v*  
-Great God deliver us
+hypocrisy and chaste prostitution of this shameful speck of dust 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:38.940975,62.245521,22.210485,32.980456/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:38.940975,65.815011,22.210485,29.410966/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -989,13 +974,9 @@ We beseech. Thee to hear us, good Lord!
 J* J* Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J J In night, O God of a godless land!  
-Amen!  
-J* In silence, O Silent God.  
-&amp;  
-i^^A&#x27;,  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:64.012501,66.052524,26.035477,28.104642/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1909092501%2F0212.jp2/pct:67.762666,66.052524,22.285312,24.759093/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1025,10 +1006,9 @@ vine what the future holds in store.
 The material progress of the Afro­  
 American people has been great.  
 Homes and farms aggregating hun-  
-From the leagued* lying of despot and of brute,,  
-Great God deliver us 
+From the leagued* lying of despot and of brute,
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:6.223826,34.490011,19.094716,35.270174/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:6.223826,34.490011,19.094716,34.669787/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1088,11 +1068,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Th crucified Christ: What meaneth this? Tell us  
-the Plan give us the Sign!  
-Keep not tfcou silence, 0 God!  
-9
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:8.620690,52.857773,22.596454,43.132865/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:8.620690,52.857773,22.596454,39.418609/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1105,7 +1083,6 @@ Keep not tfcou silence, 0 God!
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-When the idea of celebrating the  
 a 3Utanp of Atlanta  
 Silent God, Thou whose voice afar in mist and mystery hath  
 left our ears an-hungered in these fearful days  
@@ -1138,10 +1115,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin  
-From lust of body and lust of blood  
-Great God deliver us
+From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:38.559209,62.677657,22.355876,30.555273/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:38.559209,66.904108,22.355876,25.379058/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1185,11 +1161,9 @@ We beseech Thee toJiear us, good Lord!
 jfc Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J* 3* In night, O God of a godless land!  
-Amen!  
-J* J* In silence, O Silent God.  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:68.185868,66.751467,22.275684,26.440758/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_effie_ver01%2Fdata%2Fsn83016810%2F00280768030%2F1910092401%2F0425.jp2/pct:68.199234,66.751467,22.262318,24.734575/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1244,12 +1218,9 @@ Justice, 0 Judge of men I
 J* Wherefore do we pray? Is not the God of the fathers dead?  
 Have not seers seen in Heaven&#x27;s halls Thine hearsed and lifeless form  
 stark amidst the black and rolling smoke of sin, where all along bow  
-bitter forms of endless dead?  
-Awake, Thou that steepest I  
-J* J From lust of body and lust of blood  
-Great God deliver us 
+bitter forms of endless dead
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:9.106110,51.428277,22.383406,41.913307/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:9.106110,51.428277,22.383406,35.663951/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1265,10 +1236,9 @@ Great God deliver us
 a* d* Thou art not dead, but flown afar, up hills of endless light,  
 thru blazing corridors of suns, where worlds do swing of good and  
 gentle men, of women strong and freefar from the cozenage, black  
-hypocrisy and chaste prostitution of this shameful speck of dust! f\^  
-Turn again, OLorS, have us not to perish in our sin 
+hypocrisy and chaste prostitution of this shameful speck of dust! f\
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:9.286876,88.450036,22.943782,3.117803/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:9.286876,88.450036,22.943782,2.406242/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1283,10 +1253,9 @@ Turn again, OLorS, have us not to perish in our sin
   
 ROM lust of power and lust of gold,  
 Great God deliver us I  
-J* jt From the leagued lying of despot and of brute,  
-Great God deliver us 
+J* jt From the leagued lying of despot and of brute
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:38.336045,66.869479,16.494939,3.121240/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:38.336045,66.869479,16.494939,2.495617/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1299,11 +1268,6 @@ Great God deliver us
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-ignorance and lust the inquisition yet would  
-serve the law, and guillotines decide our last  
-disputes.  
-The few who dare, must speak and speak  
-again to right the wrongs of many.  
 Jt A city lay in travail, God our Lord, and from her loins sprang  
 twin Murder and Black Hate. Red was the midnight clang, crack  
 and cry of death and fury filled the air and trembled underneath the  
@@ -1338,7 +1302,7 @@ the very Mood of Thy crucified Christ: Whai meaneth this Tell us
 the Kan ghre us the Sign! pi v­  
 Keep not thou silence, 0 God
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:38.367679,57.265134,25.140094,35.887388/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:38.367679,70.602592,22.722343,22.549930/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1382,10 +1346,9 @@ We beseech Thee to hear us, good Lord!
 J* Our voices sink in silence and in night.  
 Hear us, good Lord I  
 /t  
-J* In night, O God of a godless land!  
-I In silence, O Silent Godfl^J J
+J* In night, O God of a godless land
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:66.942336,66.663229,22.975416,25.729607/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913092701%2F0444.jp2/pct:67.728670,66.663229,22.189082,23.924925/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1430,10 +1393,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women jstrong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin  
-J From lust of body and lust of blood i^  
-Great God deliver us! *V
+J From lust of body and lust of blood i
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913100401%2F0448.jp2/pct:9.919028,66.775566,22.523617,26.101753/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913100401%2F0448.jp2/pct:9.919028,66.775566,22.523617,25.438149/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1495,14 +1457,6 @@ the Plan give us the Sign! S /VCO**&quot;?*
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-behalf of the One Hundred and Nine dauntless heroes who fought with th  
-that the day will no tbe far distant  
-flag, for this opportunity of speaking for them today, I plead with you that  
-as ce efbrate we shall alfeo determine that the most effective forces of our  
-American life shall be turned uponative injusitce and as exhTb-sal  
-lted in every formo oiofl discrimination, disfranchisement, segregation, mob-  
-whi^2,5  
-en  
 0  
 th  
 and  
@@ -1524,11 +1478,9 @@ We beseech Thee to hear us, good Lord!
 *-0 Our voices sink in silence and in night.  
 Hear us, good Lord!  
 In night, O God of a godless land!  
-Amen!  
-J* In silence, O Silent God,  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913100401%2F0448.jp2/pct:68.205128,58.914412,24.471435,33.911860/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913100401%2F0448.jp2/pct:68.227620,60.258635,22.474134,30.954569/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1624,10 +1576,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin  
-J* From lust of body and lust of blood  
-Great God deliver us
+J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:8.065677,51.978270,24.966262,41.010660/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:8.065677,51.978270,24.966262,40.306820/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1642,10 +1593,9 @@ Great God deliver us
   
 *ROM lust of power and lust of gold,.  
 Great God deliver us I  
-J* From the leagued lying of despot and of brute,!  
-Great God deVtoer us 
+J* From the leagued lying of despot and of brute,
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:40.845704,66.687167,15.618534,3.109198/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:40.845704,66.687167,15.618534,2.504442/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1658,11 +1608,6 @@ Great God deVtoer us
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-ignorance and lust the inquisition yet would  
-serve the law, and guillotines decide our last  
-disputes.  
-The few who dare, must speak and speak  
-again to right the wrongs of many.  
 jfi A city lay in travail, God our Lord, and from her loins sprang  
 twin Murder and Black Hate. Red was the midnight clang, crack  
 and cry of death and fury filled the air and trembled underneath the^  
@@ -1694,10 +1639,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the teats of our dead mothers, by  
 the very blood of Thy crucified Christ: What mtanetk this? Tefl us  
-the Plan give us the Sign! i^v \/V  
-.H-tiv-V Keep not thoo silence, O God
+the Plan give us the Sign! i^v \/
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:39.779577,57.342490,25.321637,35.533689/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:39.968511,70.387454,22.523617,21.856635/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1740,11 +1684,9 @@ W how our heads and hearken soft to the sobbing of woaen
 and little children.  
 &#x27;We beseech Thee to hear us, goodLord!  
 J* Out voices sink in silence and in night.  
-Hear us, good Lord!  
-In night, O pod of a godless land!  
-MU
+Hear us, good Lord
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:69.118309,66.635916,22.231219,24.456745/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913101101%2F0452.jp2/pct:69.118309,66.635916,22.231219,22.755228/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1788,10 +1730,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 Sypocrisy and chaste prostitution of this shameful speck of dust!  
 J* Turn again, O Lordt leave us not to perish in our sin  
-J* From lust of body and lust of blood  
-Great God deliver us
+J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913102501%2F0459.jp2/pct:8.733963,65.672569,22.951194,26.647337/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913102501%2F0459.jp2/pct:8.733963,65.672569,22.951194,25.932829/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1838,10 +1779,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913102501%2F0459.jp2/pct:38.907912,66.266266,22.490070,26.364295/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913102501%2F0459.jp2/pct:38.907912,66.266266,22.490070,25.615270/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1884,11 +1824,9 @@ We beseech Thee to hear us, good Lord!
 J* d* Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J In night, O God of a godless land!  
-Amen!  
-J* In silence, O Silent God,  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913102501%2F0459.jp2/pct:68.629868,66.352559,22.462676,26.150288/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913102501%2F0459.jp2/pct:68.629868,66.352559,22.462676,24.507266/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1923,11 +1861,9 @@ Awake, Thou that steepest I s-&quot;&#x27;-*^&#x27;
 J* J* Thou art hot dead, but flown afar, tip hills of endless light,  
 thru blazing corridors of suns, where worlds do swing of good and  
 gentle men, of women strong and freefar from the cozenage, black  
-hypocrisy and chaste prostitution of this shameful speck of dust  
-and Dr. Parsons and yet some  
-strange as it may seem there i
+hypocrisy and chaste prostitution of this shameful speck of dus
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:8.465244,43.015086,22.908924,46.714197/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:8.465244,73.041951,22.688690,16.687332/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1940,21 +1876,31 @@ strange as it may seem there i
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-him in the little boat while round-  
-and grape churned the water on  
 iLttanj of Atlanta  
 Silent God, Thou whose voice afar in mist and mystery hath  
 left our ears an-hungered in these fearful days^  
 Hear us, good Lord!  
 J* L&#x27;sten to us, Thy children: our faces dark with doubt, are made  
 a mockery in Thy sanctuary. With uplifted hands we front Thy  
-heaven, O God, crying:  
-We beseech Thee to hear us, good Lord I  
-Turn again, O Lord, leave us not to perish in our sin t^\ ft  
-J o From lust of &quot;body and lust of blood ll^W&#x27;M^Or^  
-ureal bod deliver us I Smg^O&amp;i^^i^^-?
+heaven, O God, crying
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:8.474421,51.780671,22.876807,40.566233/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:8.657949,65.964042,22.573985,5.707102/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1913-11-01/ed-1/seq-1)
+
+#### 1913-11-01 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+to hear us, good Lord I  
+Turn again, O Lord, leave us not to perish in our sin t^\ ft  
+J o From lust of &quot;body and lust of blood ll^W&#x27;M^Or
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:8.474421,71.946683,22.014223,19.642488/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2003,10 +1949,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, O God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:37.600367,66.401460,23.551273,26.255425/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:37.600367,66.401460,23.551273,25.521802/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2041,20 +1986,9 @@ J*.* In yonder East trembles a star. vs
 Vengeance is mine I will repay, satih the Lord!  
 Thy wUL O Lord, be done!  
 Kyrle Eleison!  
-J Lord, we have done these pleading, wavering words.  
-i i &#x27;**&amp;jj We beseech Thee to us, gtod^ Lord  
-ahear  
-head  
-ft^f *!W.  
-and little children.  
-tw -A ^beseech Tfne to hear usf good Lord 1  
-J* J Our voices sink in silence and in night.  
-^^mHear us, good Lord 1^^^&quot;  
-In night, O God of a  
-oAmenl  
-J In silence, O Silent God
+J Lord, we have done these pleading, wavering words
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:67.570544,66.608115,23.473274,25.377144/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1913110101%2F0471.jp2/pct:68.488185,66.608115,22.555632,18.099470/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2067,6 +2001,7 @@ J In silence, O Silent God
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+dl  
 It n^  
 Silent God, Thou whose voice alar in mist and mystery hath  
 left our ears an-hungered in these fearful days  
@@ -2099,8 +2034,7 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin  
-From lust of body and lust of blooA  
-Great God deliver us 
+From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:6.840881,24.403966,24.640854,68.639155/!600,600/0/default.jpg"/>
 </td>
@@ -2115,10 +2049,6 @@ Great God deliver us
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-JgpROM lust of power and lust of gold,  
-Jp^ Great God deliver us I  
-J From the leagued lying: of desaot and of brute,  
-Great God detfber us  
 j* J* A city lay in travail, God our Lord, and from her loins sprang  
 twin Murder and Black Hate. Red was the midnight $ clang, crack  
 and cry of death and fury filled the air and trembled underneath the  
@@ -2151,7 +2081,7 @@ by the bones of our stolen fathers, by the tears of our dead mothers, by
 the very blood of Thy crucified Christ: What meaneth this Tell us  
 the Plan give us the Sig
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:38.660099,23.199890,22.875906,25.429659/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:38.660099,26.853281,22.875906,21.776268/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2164,17 +2094,6 @@ the Plan give us the Sig
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-Now if they will only pass a law mak­  
-ing it compulsory for the white people  
-to read the Bible, they might gain  
-something by absorption and we  
-wouldn&#x27;t be the sufferers after alL.  
-There are some things in the Bible  
-that even South Caarolinans could  
-read with profit. For instance, &quot;Thou  
-shalt not kill.&quot;  
-*i 1* &quot;*JMe-  
-lain-inj  
 J* J* Whither? North is greed and South is blood within, the  
 coward, and without, the liar. Whither? To death?  
 Amen 1 Welcome dark sleep i  
@@ -2196,11 +2115,9 @@ We beseech Thee to hear us, good Lord!
 J* Our voices sink in silence and in night.  
 Hear us, good Lord I  
 In night, O God of a godless land!  
-Amen!  
-J* In silence, O Silent God.  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:56.437269,30.980069,34.354905,66.327056/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:68.486341,30.980069,22.305833,16.802168/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2222,10 +2139,9 @@ Thou art still the God of our black fathers, and in Thy soul&#x27;s soul sit
 some soft darkenings of the evening, some shadowings of the velvet  
 night. J* j But whisperspeakcall, great God, for Thy silence is white  
 terror to our hearts! The way, O God, show us the way and point us  
-the path.  
-The Great Lynchers Corp
+the path
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:68.554750,23.227334,24.002372,31.062399/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914091901%2F0659.jp2/pct:68.554750,23.227334,22.210061,7.443998/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2238,7 +2154,6 @@ The Great Lynchers Corp
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-9 Hitanp of Atlanta  
 p\ Silent God, Thou whose voice afar in mist and mystery hath  
 \g|y left our ears an-hungered in these fearful days  
 Hear as, good Lord I  
@@ -2270,10 +2185,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar. from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin 1  
-o* J* From lust of body and lust of blood  
-Great God deliver us
+o* J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914092601%2F0663.jp2/pct:8.654764,23.454988,22.352460,26.569343/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914092601%2F0663.jp2/pct:8.654764,24.991310,22.352460,24.376086/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2320,10 +2234,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this? Tell us  
-the Plan give us the Sign 1  
-Keep not thou silence, 0 God
+the Plan give us the Sign 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914092601%2F0663.jp2/pct:38.130935,23.722628,22.416065,26.478971/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914092601%2F0663.jp2/pct:38.130935,23.722628,22.416065,25.676051/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2367,11 +2280,9 @@ We beseech Thee to hear us, good Lord!
 J* J* Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J* In night, O God of a godless land!  
-Amen!  
-d* In silence, O Silent God.  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914092601%2F0663.jp2/pct:67.829722,23.583594,22.384262,26.503302/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914092601%2F0663.jp2/pct:67.829722,23.583594,22.384262,24.824470/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2416,10 +2327,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin I  
-From lust of body and lust of blood  
-Great God deliver us 
+From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914100301%2F0667.jp2/pct:9.200091,22.527969,22.297757,26.815371/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914100301%2F0667.jp2/pct:9.200091,22.527969,22.297757,26.085748/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2466,10 +2376,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Th Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Th crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914100301%2F0667.jp2/pct:38.513483,22.965742,22.637661,26.526996/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914100301%2F0667.jp2/pct:38.513483,22.965742,22.637661,25.828643/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2530,7 +2439,17 @@ at Atlanta, in the Day of Death, 1906.
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+APP^  
+E  
+MTU  
+2EPS IN FRON  
+I BECAUSE:  
+5 LvJL~*B  
+hnpartiaUy. wattag no wort*  
+-i ts OorreapoDdUnta ars able and  
+V0L.  
+mm  
+m. NO. 41.  
 a iLttanp of Atlanta  
 Hear us, good Lord!  
 Silent God, Thou whose voice afar in mist and mystery hath  
@@ -2563,10 +2482,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin I  
-J* o From lust of body and lust of blood  
-Great God deliver us 
+J* o From lust of body and lust of blood
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914101001%2F0671.jp2/pct:8.782821,22.173868,22.614614,26.415225/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914101001%2F0671.jp2/pct:6.193958,4.196456,25.203476,92.021552/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2613,10 +2531,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, O God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914101001%2F0671.jp2/pct:38.635214,22.477809,22.582425,26.283977/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914101001%2F0671.jp2/pct:38.635214,22.477809,22.582425,25.603564/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2660,11 +2577,9 @@ We beseech Thee to hear us, good Lord!
 jfc &amp; Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J* In night, O God of a godless land!  
-Amen!  
-In silence, O Silent God.  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914101001%2F0671.jp2/pct:68.597968,22.529617,22.403090,26.138915/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768042%2F1914101001%2F0671.jp2/pct:68.597968,22.529617,22.403090,24.515594/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2676,7 +2591,23 @@ Selah
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+as recently passed by  
+Norway, giving the so-called illegiti  
+mate child a right to his father&#x27;s name.  
+The expenses of his rearing are di­  
+vided between father and mother in  
+proportion to their ability to pay,  
+theNegro  
+basis to be the financial status of the  
+wealthier parent. And the illegitimate  
+Norwegian child is an heir to the  
+father&#x27;s property and on equal terms  
+with the children born in marriage.  
+Nature knows nothing of illegit­  
+imacy she cares naught for marriage  
+certificates and there is no reason  
+why the innocent babe should be de­  
+graded and ostracized because of the  
 sins of its parents  
 Silent God, Thou whose voice afar in mist and mystery hath  
 left our ears an-hungered in these fearful days  
@@ -2709,10 +2640,9 @@ thru biasing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 &#x27;hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin I  
-a* From lust of body and lust of blood  
-Great God deliver us 
+a* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:6.974890,62.417639,22.572074,29.482853/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:6.974890,53.209269,24.334618,37.977694/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2759,10 +2689,9 @@ a mobbed and mocked and .murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, hy the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:36.278287,66.419182,22.363934,25.841288/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:36.278287,66.419182,22.363934,25.057050/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2775,13 +2704,6 @@ Keep not thou silence, 0 God
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-The play to which you &#x27;refer, in­  
-stead of being &quot;grounded on histori-&#x27;  
-cal facts,&quot; is grounded on historical I  
-misrepresentation, without^ having a  
-W A imagSon! wffaTse t^ace &#x27;TeV^^Z  
-and deceptive background as a basis thy of freedom.  
-out  
 J Whither? life? But not this life, dear God, not this. Let  
 the cup pass from us, tempt us not beyond our strength, for there is  
 that clamoring and clawing within, to whose voice we would not listen  
@@ -2809,7 +2731,7 @@ Setah!
 Done at Atlanta, in the Day of Death, 1906  
 n
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:63.181436,34.040433,24.959036,60.752740/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:63.181436,34.040433,24.932465,60.752740/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2833,11 +2755,9 @@ night. J* J* But whisperspeak-call, great God, for Thy silence is white
 terror to our hearts! The way, O God, show us the way and point us  
 the path.  
 Whither? North is greed and South is blood within, the  
-coward, and without, the liar. Whither? death?  
-Amen Welcome dark sleep  
-P
+coward, and without, the liar. Whither? death
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:65.763252,61.212355,22.731500,14.595185/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915092501%2F0204.jp2/pct:65.763252,66.583100,22.177937,8.610549/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2850,13 +2770,6 @@ P
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-in the mind of one class for the other.  
-The question is asked and even now  
-awaits an answer. How may one  
-foster the spirit of genuine good will  
-betwen classes educated in separate  
-&#x27;oo*  
--sfJ  
 a Hitatnj of Atlanta  
 Silent God, Thou whose voice afar in mist and mystety hath  
 left our eats an-hungered in these fearful days  
@@ -2889,10 +2802,9 @@ tbrti blazing corridors of suns, where worlds da swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin 1  
-From lust of body and lust of blood  
-Great God deliver us
+From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:7.189365,8.680185,25.818412,84.431293/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:9.395912,24.494680,23.611865,25.387277/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2940,8 +2852,6 @@ IN THE NEW YORK INDEPENDEN
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-ROM lust of power and lusLc&amp;gold,  
-Great God deliver us I  
 &amp; jfc From the leagued lying of despot and of brute,  
 Great God deliber us  
 J* J* A city lay in travail, God our Lord, and from her loins sprang  
@@ -2974,10 +2884,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this? Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God 
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:39.631941,25.190000,22.938144,25.814172/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:39.631941,27.143365,22.938144,23.094337/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2995,17 +2904,27 @@ In yonder East trembles a star.
 Vengeance is mine I will repay, satth the Lord I  
 Thy will, O Lord, be done!  
 Kyrie Eleisonl  
-Lord, we have done these pleading, words.  
-We beseech Thee to hear gcod Lord!  
-JZlXZ  
+Lord, we have done these pleading, words
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:71.509315,3.780602,17.078133,39.736748/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1915-10-02/ed-1/seq-1)
+
+#### 1915-10-02 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 jfc Our voices sink in silence and in night.  
 Hear us, good Lord!  
 jfc In night, O God of a godless land!  
-Amen!  
-In silence, O Silent God.  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:69.474589,3.780602,19.112859,47.401442/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:70.537168,46.825782,13.284500,2.781281/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3035,10 +2954,9 @@ J* Whither? To life? But not this life, dear God, not this. Let
 the cup pass from us, tempt us not beyond our strength, for there is  
 that clamoring and clawing within, to whose voice we would not listen,  
 yet shudder lest we must, and it is red, Ah! God! It is a red and  
-awful shape.  
-Selah
+awful shape
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:69.678061,25.639533,22.594502,13.440704/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100201%2F0207.jp2/pct:69.678061,25.639533,22.594502,12.677468/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3051,14 +2969,26 @@ Selah
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-cation is best for at least the next  
 J* Thou art not dead, but flown afar, up hills of endless light,  
 thru blazing corridors of suns, where worlds do swing of good and  
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish In our sin 1  
-J* From lust of body and lust of blood  
-Great God deliver us  
+J* From lust of body and lust of bloo
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100901%2F0211.jp2/pct:8.755948,43.766647,22.741899,4.190216/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1915-10-09/ed-1/seq-1)
+
+#### 1915-10-09 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+deliver us  
 JIM CROW SCHOOL DANGER.  
 Philadelphia in&#x27; Tight Grip of Race Prejudice, Says the Very  
 Conservative Philadelphia Tribune. Thoughtful Col­  
@@ -3147,10 +3077,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christt What meaneth this? Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100901%2F0211.jp2/pct:39.021074,23.055935,23.077272,26.028065/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100901%2F0211.jp2/pct:39.021074,23.055935,23.077272,25.297213/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3199,11 +3128,9 @@ We beseech Thee to, hear us, good Lord!
 J Our voices sink in silence and in night.  
 Hear us, good Lord!  
 o* In night, O God of a godless land!  
-Amen!  
-J* In silence, O Silent God.  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100901%2F0211.jp2/pct:69.145706,23.335282,22.705642,25.894887/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1915100901%2F0211.jp2/pct:69.145706,23.335282,22.705642,24.238290/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3248,10 +3175,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not to perish in our sin I  
-J* J* From lust of body and lust of blood  
-Great God deliver us 
+J* J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:8.493675,65.561550,22.403349,26.172961/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:8.493675,65.561550,22.403349,25.456923/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3264,12 +3190,23 @@ Great God deliver us
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-jras enactedthe union of the North­  
-ern and Southern Methodists  
-The coming together again after the  
 A LITANY OF ATLANTA  
 BY DR. W, E. BURGHARDT DU BOIS  
-IN THE NEW YORK INDEPENDENT  
+IN THE NEW YORK INDEPENDEN
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:16.354890,56.704267,65.611081,6.153343/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1916-09-09/ed-1/seq-2)
+
+#### 1916-09-09 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 ^ROM lust of power and lust of gold,  
 Great God deliver us I  
 &amp; From the leagued lying of despot and of brute,  
@@ -3304,10 +3241,9 @@ a mobbed and mocked and murdered peoples straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God 
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:16.354890,54.765408,65.611081,37.289521/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:37.956529,65.875429,22.514698,25.417688/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3343,32 +3279,19 @@ Vengeance is mine I wilt repay, satth the Lord I
 J Thy will, O Lord, be done!  
 Kyrie Eleisonl  
 o J* Lord, we have done these pleading, wavering words.  
-We beseech Thee to hear us, good Lord
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:67.477285,65.963708,22.349902,18.744483/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1916-09-09/ed-1/seq-2)
-
-#### 1916-09-09 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+We beseech Thee to hear us, good Lord!  
+J* J In silence, O Silent God,  
+Setahl  
+Den* at Atlanta, in the Dajr of Death. 1906.  
 fy? bow o heads and hearken soft to the sobbing of wotten  
 and little children.  
 We beseech Thee to hear us, good Lord!  
 J* Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J* J* In night, O God of a godless land!  
-Amen!  
-mm  
-COLORED RACE CONGRESS
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:67.512916,5.044957,23.570283,85.195357/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916090901%2F0408.jp2/pct:65.138963,65.963708,24.706040,28.641491/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3413,10 +3336,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin I  
-J* From lust of body and lust of blood  
-Great God deliver us 
+J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:8.691513,20.466911,22.742111,26.534112/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:8.691513,20.466911,22.742111,25.811983/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3444,7 +3366,21 @@ THE APPE A
 ST. PAUL AND MINNEAPOLIS, MINN.. &amp;ATUBDAY: SEPTEMBER 16. 1916  
 A LITANY OF ATLANTA  
 BY DR. W, E. BURGHARDT DU BOIS  
-IN THE NEW YORK INDEPENDENT  
+IN THE NEW YORK INDEPENDEN
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:6.945956,3.775514,76.387378,94.724173/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1916-09-16/ed-1/seq-1)
+
+#### 1916-09-16 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 J- From the leagued lying of despot and of brute,  
 Great God dettber us I  
 &amp; A city lay in travail, God our Cord, and from her loins sprang  
@@ -3470,10 +3406,9 @@ jt Doth not this justice of hell stink in Thy nostrils, O God? How
 long shall the mounting flood of innocent blood roar in Thine ears and  
 pound in our hearts for vengeance? Pile the pale frenzy of blood-  
 crazed brutes who do such deeds high on Thine altar, Jehovah Jireb,  
-and burn it in hell forever and forever!  
-Forgtbe us, good Lord vje knovj not whai tv say 
+and burn it in hell forever and forever
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:6.945956,3.775514,76.387378,94.724173/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:38.597207,22.933360,22.964273,18.554423/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3491,10 +3426,9 @@ a mobbed and mocked and murdered people} straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:38.787631,42.813335,23.054951,4.444884/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:38.787631,42.813335,23.054951,3.712863/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3507,10 +3441,9 @@ Keep not thou silence, 0 God
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-J* jft Lord, we have done these pleading, wavering words.  
-We beseech Thee to hear us, good Lord 
+J* jft Lord, we have done these pleading, wavering words
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:68.589046,38.694892,18.788538,1.154087/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:68.589046,38.694892,18.788538,0.550664/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3552,11 +3485,9 @@ We beseech Thee to hear us, good Lord I
 Jft Jft Our voices sink in silence and in night.  
 Hear us, good Lord  
 Jft Jft In night, O God of a godless land!  
-Amen I  
-Jft jft In silence, O Silent God.  
-Selah
+Amen 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:68.552775,20.951627,22.556221,26.197778/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916091601%2F0411.jp2/pct:68.552775,20.951627,22.556221,24.516108/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3601,10 +3532,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin  
-J* From lust of body and lust of blood  
-Great God deliver us 
+J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:9.134594,21.095640,23.246747,26.269857/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:9.134594,21.095640,23.246747,25.560567/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3635,7 +3565,21 @@ jkegee that will teach cringing sub­
 ST. PAUL AM) MINNEAPOLIS. MINN.. SATURDAY. SEPTEMBER 23. 1916  
 A LITANY OF ATLANTA  
 BY DR. W, E. BURGHARDT DU BOIS  
-IN THE NEW YORK INDEPENDENT  
+IN THE NEW YORK INDEPENDEN
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:17.462260,11.420540,66.344803,85.287965/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1916-09-23/ed-1/seq-1)
+
+#### 1916-09-23 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 ^ROM lust of power and lust of gold.  
 Great God deliver us I  
 &amp; &amp; From the leagued lying of despot and of brute,  
@@ -3671,10 +3615,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackjed bands and charge Thee, God,  
 by the bones of our stolen fathers, by the iears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign I  
-Keep not thou silence, 0 God
+the Plan give us the Sign 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:17.462260,11.420540,66.344803,85.287965/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:39.018088,21.595738,22.952083,25.387331/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3718,11 +3661,9 @@ We beseech Thee to hear us, good Lord!
 J* Our voices sink in silence and in night.  
 Hear us, good Lord!  
 J* In night, O God of a godless land!  
-Amen I  
-In silence, O Silent God.  
-Selah
+Amen 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:68.869849,21.716676,22.612086,26.018173/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916092301%2F0415.jp2/pct:68.869849,21.716676,22.612086,24.344643/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3735,12 +3676,6 @@ Selah
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-i  
-words and deeds of your  
-JJJEJ  
-fears.  
-i  
-BE,  
 8 Uttattj of Atlanta  
 Silent God, Thou whose voice afar in mist and mystery bath  
 left our ears an-hungered in these fearful days  
@@ -3773,10 +3708,9 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not toperis% in our sin I  
-From lust of body and lust of blood  
-Great God deliver us 
+From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:4.324324,20.050470,28.513514,76.334677/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:10.211712,20.050470,22.626126,25.513715/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3805,7 +3739,21 @@ aPullman a law
 ST. PAUL AM) MINNEAPOLIS. MINN.. SATURDAY: SEPTEMBER 30,1916  
 A LITANY OF ATLANTA  
 BY DR. W E. BURGHARDT DU BOIS  
-IN THE NEW YORK INDEPENDENT  
+IN THE NEW YORK INDEPENDEN
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:18.378378,10.195654,66.036036,86.549995/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1916-09-30/ed-1/seq-1)
+
+#### 1916-09-30 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 ROM lust of power and lust of gold,  
 Great God deliver us I  
 J* From the leagued lying of despot and of brute,  
@@ -3840,10 +3788,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this? Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:18.378378,10.195654,66.036036,86.549995/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:39.932432,20.453577,22.905405,25.480943/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3888,11 +3835,9 @@ We beseech Thee to hear us, good Lord I
 Our voices sink in silence and in night.  
 Hear us, good Lord I  
 In night, O God of a godless land!  
-Amen!  
-In silence, O Silent God,  
-Selah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:69.603604,20.601055,22.459459,26.070855/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0420.jp2/pct:69.603604,20.601055,22.459459,24.399436/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3963,8 +3908,7 @@ thru blazing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, leave us not toperfslji in our sin 1  
-o From lust of body and lust of blood  
-Great God deliver us
+o From lust of body and lust of blood
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0421.jp2/pct:1.793148,5.012285,30.286812,91.302211/!600,600/0/default.jpg"/>
 </td>
@@ -3998,7 +3942,21 @@ Mt1
 ST. PAUL AND MINNEAPOLIS. MINN.. SATURDAY: SEPTEMBER 30,1916  
 A LITANY OF ATLANTA  
 BY DR. W, E. BURGHARDT DU BOIS  
-IN THE NEW YORK INDEPENDENT  
+IN THE NEW YORK INDEPENDEN
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0421.jp2/pct:17.396276,10.181818,67.114954,87.272727/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1916-09-30/ed-1/seq-2)
+
+#### 1916-09-30 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 ROM lust of power and lust of gold,  
 Great God deliver us I  
 a* From the leagued lying of despot and of brute,  
@@ -4033,10 +3991,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign!  
-Keep not thou silence, 0 God
+the Plan give us the Sign
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0421.jp2/pct:17.396276,10.181818,67.114954,87.272727/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0421.jp2/pct:39.188509,20.540541,22.967842,25.415233/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4079,10 +4036,9 @@ J* J* Our voices sink in silence and in night.
 Hear us, good Lord!  
 In night, O God of a godless land!  
 Amen!  
-J* In silence, O Silent God.  
-Selah
+J* In silence, O Silent God
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0421.jp2/pct:69.310645,20.769861,22.876355,25.955774/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1916093001%2F0421.jp2/pct:69.310645,20.769861,22.876355,25.356265/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4127,9 +4083,14 @@ his life to defend the United States.
 In return for his loyalty to his  
 naultra-radical  
 tive land, THE APPEAL believes that  
-DEMOCRACY WILL GAIN
+DEMOCRACY WILL GAIN.  
+Prof. Charles E. Merriam in an ar­  
+ticle on the &quot;War for Freedom,&quot; &quot;as-  
+sumes that as a result of the present  
+war both civil liberty and industrial  
+democracy will be the gainers in ever
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917063001%2F0582.jp2/pct:8.046283,31.013490,24.515671,59.671890/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917063001%2F0582.jp2/pct:7.882254,31.013490,24.679700,62.603736/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4217,40 +4178,6 @@ will be human brotherhood
 
 ---
 
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-07/ed-1/seq-2)
-
-#### 1917-07-07 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-ntry in the world.  
-America will be no exception.&quot;  
-War is a horrible thing viewed from  
-any angle, but good will come out of  
-it and when it is over many of the old  
-prejudices and distinctions which have  
-cursed the world will have been  
-burned away.  
-GIVE TH E CHANCE, WE&#x27;LL HOLD  
-OUR OWN.  
-uates as follows: Lorenzo D. Turner  
-of Rockville, Ind., with degree of A.  
-M., and the following A. B.&#x27;s, L. V.  
-,-sir&#x27;s tr*f **xMgg^l  
-REFUSES TO BE IMC ROW BISHOP.  
-Rev. James S. Russell of Lawrenceville, Va., Recently Appointed Suffragan,  
-or Jim Crow Bishop, for Several of the Southern  
-States, Has Declined the Honor  
-at the present time, and in spite of it- Alexis, with honor grade &quot;Cum Laude&quot;  
-Not only the United States but in, burgh, Penn, also U. W. Holley of  
-the whole world we are about to enter Roxbury, son of Mr. and Mrs. Holley
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917070701%2F0586.jp2/pct:19.473470,26.085264,24.933279,69.982480/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
 ## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
 
 #### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
@@ -4290,9 +4217,57 @@ American, should feel that he is. anbeen
 American and should be ready to sacri­  
 fice all of his possessions and even  
 his life to,defend the United States.  
-In return for his loyalty to his na-achieve
+In return for his loyalty to his na-achieve  
+WARNS AGAINST RACIAL HATRED.  
+It is so unusual for a Christian  
+minister to preach against racial hat­  
+red that THE APPEAL is pleased to  
+note that one minister has the cour­  
+age of his convictions.  
+,In his sermon last Sunday, Rev. H.  
+E. Peabody, pastor of the South Con­  
+gregational Church, in Chicago, said  
+V. 1  
+QM  
+&#x27;&amp;&quot;  
+tive land, THE APPEAL believes that  
+every American has the right to ex- lings of democracy are being heard,  
+pect every right and privilege ac­  
+corded to every other American. No  
+land is a democracy in which there  
+are two classes of citizens.  
+These are the days that we should  
+feel patriotic. One hundred and forty­  
+one years ago the United States shook  
+off the bonds of Great Britain and be­  
+came independent.  
+The Declaration of Independence  
+states that &quot;all men are created equal  
+and endowed by their creator with cer­  
+tain inalienable rights among which  
+are life, liberty and the pursuit of  
+happiness. After one hundred and  
+forty-one years this ideal has not been  
+realized and our much vaunted de­  
+mocracy is largely a sham, but some  
+progress has been made.  
+We are now at war and it is claimed  
+that we are fighting for world-wide  
+democracy, and in spite of the fact  
+that many forces have been at work  
+in recent years to retard the growth  
+of democracy, THE APPEAL believes  
+that the end of the war will find the  
+United States further advanced in true  
+democracy than may appear possible  
+at the present time, and in spite of it­  
+self.  
+Not only the United States but in  
+the whole world we are about to enter  
+an era- in which the basic principle  
+will be human brotherhood
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:5.821734,38.087368,14.654711,30.326009/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:4.358494,38.087368,25.834226,59.125672/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4374,20 +4349,6 @@ both within and withou
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the burdens and privations of the Rus­  
-sian people  
-While so much is being dc%e to aid  
-the Russian people, would it not belife  
-well to &quot;try to reduce the burdens and  
-privations&quot; of certain classes of Amer­  
-ican people, who are in many respects  
-greater sufferers than the Russians  
-are.  
-Congressman Medill McCormick in  
-a recent speech said that all here must  
-be Americans That&#x27;s good talk but &#x27;P  
-the greatest consideration.  
-crusade against autocracy, without ad- sia, appeals to the American people&#x27;  
 vancing the line of democracy in every to help Russia build a republic. Per  
 country In the world, whether on one haps in the year, to oo  
 side of the contest or the other. If Russian republic has been built, some  
@@ -4410,6 +4371,79 @@ lives in the East St. Louis riots
 
 ---
 
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-21/ed-1/seq-2)
+
+#### 1917-07-21 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+be sweeter than the applause of the  
+world, the countenances of relatives or  
+the hearts of friends.Charles Sumner.  
+hearts God help us.  
+&quot;There is far more danger to the  
+republic from race hatred within our  
+borders than from all the Germans  
+put together.  
+&quot;Christian citizens of Chicago, think  
+this thing through. Try to make up  
+your mind beforehand what you will  
+do and say when the earthquake and  
+the volcano shall be around you. Our  
+country is in dire need of clear heads  
+and stout heartsChristian hearts,  
+both within and without.
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:22.739404,29.559079,22.562989,63.624057/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-21/ed-1/seq-2)
+
+#### 1917-07-21 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+use  
+the name and seal of democracy as a  
+means of obtaining political or eco­  
+nomic privilege, they are doomed to  
+disappointment. They are unchaining  
+democratic forces that cannot be  
+quieted without full recognition of  
+their position in&#x27; society and the state.  
+In the long run, both civil liberty and  
+industrial democracy will be the gain­  
+ers in every country in the world.  
+America will be no exception.&quot;  
+War is a horrible thing viewed from  
+any angle, but good will come out of  
+it and when it is over many of the old  
+prejudices and distinctions which have  
+cursed the world will have been  
+burned away.  
+Charles Edward Russell, a member  
+of the American Commission to Rus­  
+sia, appeals to the American people  
+to help Russia build a republic. Per­  
+haps in the years to come when the  
+Russian republic has been built, some  
+The National Evangelistic Alliance  
+of America has appealed to President  
+Wilson that flags on public buildings  
+be at half-mast on Sunday, July 29th,  
+in memory of persons who lost their  
+lives in the East St. Louis riots
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:32.985027,9.237414,24.652825,68.861600/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
 ## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-28/ed-1/seq-2)
 
 #### 1917-07-28 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
@@ -4417,6 +4451,8 @@ lives in the East St. Louis riots
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+coloredof  
+CRIME AGAINST CIVILIZATION.  
 a ittanp ot atknta  
 God, Thou whose voice afar in mist and* mystery hath  
 left our ears an-huogercd in these fearful days-­  
@@ -4450,10 +4486,9 @@ thru biasing corridors of suns, where worlds do swing of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, O Lord, Uxoe as not to ptrbh Moor sin _~  
-J* From lust of body and lust of blood  
-Crtai God deliver us
+J* From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:8.312276,66.242815,22.764552,25.986578/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:8.312276,24.772822,22.764552,66.734098/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4635,7 +4670,6 @@ IN THE NEW YORK INDEPENDEN
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-^ROM lust of power and lust of gold*  
 irreaf God deliver us  
 From the leagued lying of despot and of brute.  
 Great God detiber us  
@@ -4668,7 +4702,7 @@ a mobbed and mocked and murdered people straining at the armposts
 \ofThy Throne, we tam our shacMcd hands aad charge Thee, God*  
 &quot;by the bones of our stolen facers, b? the tears of our dead mothers
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:37.407457,66.997399,23.238906,23.764570/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:37.407457,67.719873,23.238906,23.042096/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4717,17 +4751,37 @@ mUSt&#x27;*
 IwfoUhfpc.  
 A  
 J J* In yonder East trembles a star.  
-Vengeance is mine Iwillrepay, saith the lord!  
-Thy wihV O Lord. done!  
-Kyrie Eieisonl  
-J Lord, we havejdone hese pleading, wavering words.  
-r**^hThee%b^jp,gc4Utd!  
+Vengeance is mine Iwillrepay, saith the lord
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:67.238551,57.592396,22.653722,29.810872/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-28/ed-1/seq-2)
+
+#### 1917-07-28 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 We beseech Thee to hear us, good Lord  
 Our voices sink in silence and in nigiiS
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:67.238551,57.592396,22.653722,31.448480/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072801%2F0598.jp2/pct:69.100501,87.467489,13.259742,1.573387/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
+
+---
+
+## THE ILLINOIS RACE WAR AND ITS BRUTAL AFTERMATH
+
+#### From _Current Opinion (1913-1925)_
+
+#### 1917-08-01 &middot; [New York](http://dbpedia.org/resource/New_York_City)
+
+[This text is not available under an open license.]
 
 ---
 
@@ -4783,7 +4837,7 @@ Turn again, O Lord, leave us not to perish in our sin
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
- peace, explosion is not the most significant  
+  
 from crimes against civilization abroad thing. The race prejudice, contempt  
 to crimes against civilization at home. and hatred, workingworking be-  
 The testimony of eye witnesses shows neaththese arc the hell belowand  
@@ -4792,7 +4846,7 @@ white people of this city from the cru- i hearts God help us.
 volting was ever charged against Ne- your mind beforehand what you will  
 groes than was done by these white do and say when the earthquake an
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:17.265212,50.868106,24.904007,8.062152/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:17.265212,51.464217,24.904007,7.466041/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4805,11 +4859,14 @@ groes than was done by these white do and say when the earthquake an
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+peared in the daily papers, but it is ties of the unspeakable Turk in Ar-  
 evidently the most sincere which THE menia, could occur among our own  
 APPEAL has seen: fellow-citizens in East St. Louis?  
-The hideous outrage against law &quot;But, beware! The peril is neare
+The hideous outrage against law &quot;But, beware! The peril is nearer  
+and humanity in East St. Louis, 111., than that. The mutterings of the vol- -5  
+makes us turn again from the barbari-
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:17.382663,48.004821,24.809143,1.628718/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:17.382663,47.434770,30.830736,3.345386/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4824,7 +4881,21 @@ The hideous outrage against law &quot;But, beware! The peril is neare
 uis riots.  
 A LITANY OF ATLANTA  
 BY DR. W. E. BURGHARDT DU BOIS  
-IN THE NEW YORK INDEPENDENT  
+IN THE NEW YORK INDEPENDEN
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:15.232416,58.549138,66.382075,6.752663/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-04/ed-1/seq-2)
+
+#### 1917-08-04 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 &#x27;ROM lust of power and lust of gold,  
 Great God deliver us I  
 J- From the leagued lying of despot and of brute,  
@@ -4859,10 +4930,9 @@ a mobbed and mocked and murdered people straining at the armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ What meaneth this Tell us  
-the Plan give us the Sign!.- i  
-Keep not thou silence, God! K~ ~S* r
+the Plan give us the Sign!.- 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:15.232416,58.549138,66.382075,35.782925/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:36.983331,68.298642,22.803451,25.245122/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4951,11 +5021,9 @@ J* Thou art not dead, but flown afar, up hills of endless light,
 thru blazing corridors of suns, where worlds do swing of good and  
 gentle men, of women strong and free-far from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
-7am again, O Lord, leave us not to perish in our sin  
-&amp; a* From lust of body anoMust of blood  
-Great God deliver us
+7am again, O Lord, leave us not to perish in our si
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:7.535761,66.075546,22.909616,26.041768/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:7.567348,66.075546,22.878029,24.310630/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5002,11 +5070,9 @@ a mobbed and taocked and murdered people straining at the&#x27;armposts
 of Thy Throne, we raise our shackled hands and charge Thee, God,.  
 by the bones of our stolen fathers, by the tears of our dead mothers, by  
 the very blood of Thy crucified Christ: What meaneth this Tell us  
-the Plan give us the Sign  
-^2&quot;  
-^Reep not thou silence, X) God
+the Plan give us the Sig
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:37.317811,66.491279,23.225486,25.931339/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:37.317811,66.491279,23.225486,25.297996/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5048,11 +5114,9 @@ We beseech Thee to hear us, good Lord!
 Our voices sink in silence and in night.  
 Hear us, good Lord!  
 In night, O God of a godless land!  
-Amen!  
-Jt jt In silence, O Silent God,  
-Setah
+Amen
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:67.221696,66.871285,22.859979,25.600052/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:67.316457,66.871285,22.765218,23.953360/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5064,7 +5128,7 @@ Setah
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+ against Ne-!  
 a flttatttj of Stlants  
 Silent God, Thou whose voice afar in mist and mystery hath  
 left our ears an-hungered in these fearful days  
@@ -5097,10 +5161,9 @@ thru blazing corridors of suns, where Worlds do svring of good and
 gentle men, of women strong and freefar from the cozenage, black  
 hypocrisy and chaste prostitution of this shameful speck of dust!  
 Turn again, 0 Lord, leave us not to perish in our sin  
-jfc From lust of body and lust of blood  
-Great God deliver u
+jfc From lust of body and lust of bloo
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081801%2F0610.jp2/pct:10.993471,67.484563,22.388389,25.943167/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081801%2F0610.jp2/pct:10.993471,58.151489,22.388389,34.558562/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5183,80 +5246,36 @@ Whither? To life? But not this life, dear God, noat this.
 the cup pass from us, tempt us not beyond ourG strength, for there is  
 that clamoring and clawing within, to whoseh voice we would not listen,  
 mUSt  
-In yonder East trembles a star.  
-Vengeance is mine I will repay, satth the Lord!  
-sdone!eP  
-hav  
-Lti&#x27;r  
-W  
-IeaJia  
-Lord,e  
-bhee  
-Kyrle Eleison!  
-don  
-We Beseech Thee to hear us, gcod Lord!  
-We Beseech Thee to hear us, good Lord I  
-J* Our voices sink in silence and in night  
-Bear us, good Lord!  
-J* J In riighVo God of a godless land!  
-Amenl 7  
-J* In silence, O Silent God.  
-Selah
+In yonder East trembles a star
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081801%2F0610.jp2/pct:69.317981,68.376814,22.454561,25.535836/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081801%2F0610.jp2/pct:69.481207,68.376814,22.291336,14.489380/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
 ---
 
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-09-01/ed-1/seq-2)
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-25/ed-1/seq-2)
 
-#### 1917-09-01 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+#### 1917-08-25 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-d mur­  
-der.  
-BW  
-rYV  
-THE MAN WHO DARES  
-I Honor the man who in the consci­  
-entious discharge of his duty dares to  
-stand alone the world, with ignorant,  
-intolerant judgment, may condemn,  
-the countenances of relatives may be  
-averted, and the hearts of friends grow  
-colds but the sense of duty done shall  
-be sweeter than the applause of the  
-world, the countenances of relatives or  
-the hearts of friends*Charles Sumner.  
-WARNS AGAINST RACIAL HATRED.  
-It is so unusual for a Christian  
-minister to preach against racial hat­  
-red that THE APPEAL is pleased to  
-note that one minister has the cour­  
-age of his convictions.  
-In his sermon last Sunday, Rev.  
-E. Peabody, pastor of the South Con­  
-gregational Church, in Chicago, said  
-that racial hatred within the United  
-States is more dangerous than all Ger­  
-mans outside this country.  
-Dr. Peabody likened the East St  
-Louis massacre to the &quot;atrocities of  
-the unspeakable Turk in Armenia.&quot;  
+  
+down  
+the unspeakable Turk in Armenia  
 &quot;The country&#x27;s perils are not all on  
-the sea and beyond,&quot; said Dr. Peauries  
+the sea and beyond,&quot; said Dr. Pea­  
 body. &quot;Think of the moral earthquake  
-and volcano that has burst in thegreatly  
+and volcano that has burst in the  
 midst of the land, in our own state,  
 since last we met.  
 &quot;Who would have believed that a  
-massacre that reminds one of St.  
+massacre that reminds one of St.demand  
 Bartholomew&#x27;s night and of the atroci­  
 ties of the unspeakable Turk in Ar­  
-menia, could occur among our own  
-fellow-citizens in East St. Loujs?  
+menia, could occur among our  
+ownTAINS  
+fellow-citizens in East St. Louis?  
 &quot;But, beware! The peril is nearer  
 than that. The mutterings of the vol­  
 cano are felt in Chicago. The single  
@@ -5267,19 +5286,102 @@ neaththese are the hell belowand
 they find some lodgment in all our  
 hearts God help us.  
 &quot;There is far more danger to the  
-republic from race hatred within -our  
+republic from race hatred within our  
 borders than from all the Germans  
 put together.  
 &quot;Christian citizens of Chicago, think  
 this thing through. Try to make up  
-your mind beforehand what you-will  
+your mind beforehand what you will  
 do and say when the earthquake and  
 the volcano shall be around you. Our  
 country is in dire need of clear heads  
 and stout heartsChristian hearts,  
 both within and without.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090101%2F0619.jp2/pct:18.267574,2.202329,22.331066,71.535143/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917082501%2F0614.jp2/pct:19.185127,39.735594,14.671238,19.629052/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-09-08/ed-1/seq-2)
+
+#### 1917-09-08 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+PTEMBER 8, 1917  
+&quot;Any prejudice whatever will  
+be insurmountable if those who  
+do not share in it themselves  
+truckle to it and flatter it and  
+accept it as a law of nature.&quot;  
+John Stuart Mill.  
+j&amp;or**i  
+NATIONAL RACE CONGRESS.  
+Elsewhere on this page will be found  
+an article from Boston in regard to  
+the coming Race Congress which un­  
+questionably is a needed movement  
+and it is hoped that the people of  
+the Twin Cities will get together and  
+arrange to send representatives to the  
+same There is very little time to  
+work, so let&#x27;s get at it NOW. Let us  
+hear from our citizens in regard to  
+the matter at once.  
+WARNS AGAINST RACIAL HATRED.  
+It is so unusual for a Christian  
+minister to preach against racial hat-,  
+red that THE APPEAL is pleased to  
+note that one minister has the cour­  
+age of his convictions.  
+In his sermon last Sunday, Rev. H.  
+E. Peahody, pastor of the South Con­  
+gregational Church, in Chicago, said  
+that racial hatred within the United  
+States is more dangerous than all Ger­  
+mans outside this country.  
+Dr. Peabody likened the East St  
+Louis massacre to the &quot;atrocities of  
+the unspeakable Turk in Armenia.&quot;  
+&quot;The country&#x27;s perils are not all on  
+the sear and beyond,&quot; said Dr. Pea­  
+body. &quot;Think of the moral earthquake  
+and volcano that has burst in the  
+midst of the land, in our own state,  
+since last we met.  
+&quot;Who would have believed that a  
+massacre that reminds one of St.  
+Bartholomew&#x27;s night and of the atroci­  
+ties of the unspeakable Turk in Ar­  
+menia, could occur among our own  
+fellow-citizens in East St. Louis?  
+&quot;But, beware! The peril is nearer  
+than that. The mutterings of the vol­  
+cano are felt in Chicago. The single  
+explosion is not the most significant  
+thing. The race prejudice, contempt  
+and hatred, workingworking be­  
+neaththese are the hell belowand  
+they find some lodgment in all our  
+hearts God help us.  
+&quot;There is far more danger to the  
+republic from race hatred within our  
+borders than from all the Germans  
+put together. i  
+&quot;Christian citizens of Chicago, think  
+MjiiJ^&amp; ?L*r i#b- *&amp; 3k* iJ  
+S  
+this thing through. Try to make up  
+your mind beforehand what you will  
+do and say when the earthquake and  
+the volcano shall be around you. Our  
+country is in dire need of clear heads  
+and stout heartsChristian hearts,  
+both within and without.
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:4.590443,5.417725,25.715437,91.173406/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

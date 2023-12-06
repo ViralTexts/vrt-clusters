@@ -1,9 +1,9 @@
 
-# Honea Path -  Transcriptions of newspaper articles of interest.md
+# Honea_Path_-_Transcriptions_of_newspaper_articles_of_interest
 
-### 25 reprints from 1911-10-11 to 1911-10-19
+### 24 reprints from 1911-10-11 to 1911-10-19
 
-## Honea Path -  Transcriptions of newspaper articles of interest.md
+## Honea_Path_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -11,16 +11,13 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
-Lynched by Mob after long race mark  
-  
-Willis Jackson Charged With Assaulting Young Girl Taken From Officers  
+*Willis Jackson Charged With Assaulting Young Girl Taken From Officers  
 After Exciting Exciting Chase Through Several Countie
 </td></tr></table>
 
 ---
 
-## Honea Path -  Transcriptions of newspaper articles of interest.md
+## Honea_Path_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -28,113 +25,113 @@ After Exciting Exciting Chase Through Several Countie
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-patch Oct 10th  
-Intense excitement has prevailed in Anderson county today fo lowing  
-successful criminal assault upon the 11 year old daughter of a promine  
-citizen of Honea Path by a negr Willis Jackson aged 17 years th  
-morning at 7 30 o clock Accordin to the little girl she was attacked b  
-the negro while she was going to he pasture with her cow The attac s  
+patch, Oct. 10th.\
+Intense excitement has prevailed in Anderson county today fo\&#x27;lowing  
+successful criminal assault upon the 11-year-old daughter of a promine  
+citizen of Honea Path by a negr Willis Jackson, aged 17 years, th  
+morning at 7:30 o\&#x27;clock. Accordin to the little girl she was attacked b  
+the negro while she was going to he pasture with her cow. The attac s.  
 was made within three hundre rs yards of the incorporate limits nd Honea  
-Path and after dragging h or little victim about seventy five yar e into  
-a patch of woods he accomplish S bis dastardly purpose behind a dea log  
-st y of n The little girl emerged from t woods attracted a passerby  
-and ga of the alarm A mob of several hu in dreb people immediately  
-gathered ܐ dir= rtl The Honea Path and every conceivab hiding place  
-was searched Thr negro men were brought before t girl and it was the  
-last Willis Jac f son that she positively identified the right man  
-The identificatio took place while the mobs we searching the woods the  
-negro ha ing been located in a butcher shop b Constable Haynes Before  
+Path and after dragging h or little victim about seventy-five yar e into  
+a patch of woods he accomplish S bis dastardly purpose behind a dea log.  
+st y. of n, The little girl emerged from t woods, attracted a passerby  
+and ga of the alarm. A mob of several hu in dreb people immediately  
+gathered .[ܐ]{dir=&quot;rtl&quot;} The Honea Path and every conceivab hiding place  
+was searched. Thr negro men were brought before t girl and it was the  
+last, Willis Jac f son, that she positively identified the right man.  
+The identificatio took place while the mobs we searching the woods, the  
+negro ha ing been located in a butcher shop b Constable Haynes. Before  
 the mo ed returned from their fruitless sear re the nego had been placed  
-in an aut to mobile driven by Melvin Ashl ce and was on his way to the  
-coun ce jail here е of m se on nt st es us About 9 30 o clock  
-Jackson w en lodged in jail A telephone messa as from Honea Path stated  
+in an aut to mobile, driven by Melvin Ashl ce and was on his way to the  
+coun ce, jail here. е of m- se on nt st- es us About 9:30 o\&#x27;clock  
+Jackson w en lodged in jail. A telephone messa as from Honea Path stated  
 that the a gry mob was increasing rapidly an that it was likely the  
 crowd wou come to Anderson to storm the jai is Sheriff King then  
-barricaded the ja ty calling in his deputy sheriffs and se e eral  
-policemen who were armed wi in Winchester rifles Sheriff King the hs  
-hit on the plan of spiriting the neg ad away and in Dr W F Ashmore Or  
-automobile in charge of Depu Te Sheriff Martin and Policeman Ho land  
-the negro was dispatched Greenville The car carrying the n gro left  
-Anderson at 12 45 o clock er Twenty minutes after the negro ha e been  
-spirited away more than a hu 1 dred heavily armed men arrive at in the  
-city Some came on the tro eley car some in automobiles and th y  
-others on the train They gathere a together and proceeded toward th  
-county jail They were then tol that the prisoner had been placed i an  
-automobile and that he was the on his way to Greenville he a e he 3  
-The mob was evidently greatly dis appointed on being outwitted bu under  
-the leadership of Citizen Josh Ashly who had arrived in a large  
-automobile they mobiliz again boarded automobiles and started in  
-pursuit The officers bad departed twenty minutes in advance There were  
+barricaded the ja ty calling in his deputy sheriffs and se e-eral  
+policemen who were armed wi in Winchester rifles. Sheriff King the hs  
+hit on the plan of spiriting the neg ad away and in Dr. W. F. Ashmore Or  
+automobile, in charge of Depu Te Sheriff Martin and Policeman Ho land,  
+the negro was dispatched Greenville. The car carrying the n gro left  
+Anderson at 12:45 o\&#x27;clock er Twenty minutes after the negro ha e been  
+spirited away more than a hu 1. dred heavily-armed men arrive at in the  
+city. Some came on the tro eley car, some in automobiles and th -y  
+others on the train. They gathere a-together and proceeded toward th  
+county jail. They were then tol that the prisoner had been placed i an  
+automobile and that he was the on his way to Greenville. he a- e he 3.  
+The mob was evidently greatly dis appointed on being outwitted, bu under  
+the leadership of \&quot;Citizen\&#x27; Josh Ashly, who had arrived in a large  
+automobile, they mobiliz again, boarded automobiles, and started in  
+pursuit. The officers bad departed twenty minutes in advance There were  
 a dozen or more automo biles occupied by the infuriated mob The distance  
-from Anderson to Green ville is 37 miles and the 10 ds muddy on account  
-of a hard rain las night At Piedmont 22 miles from Anderson the mob  
-had gained 8 minutes on the officers being only 12 minutes behind The  
-officers pass ed Piedmont at 1 04 o clock and ar rived at Greenville at  
-1 50 o clock The first car of the mob arrived in that city just five  
-minutes later but at that time the prisoner was on his way to  
-Spartanburg Sheriff King had telephoned to Sheriff Poole at Greenville  
-and the latter had in read iness a large automobile A trans fer from  
+from Anderson to Green ville is 37 miles and the 10.ds muddy on account  
+of a hard rain las night. At Piedmont, 22 miles from Anderson, the mob  
+had gained 8 minutes on the officers, being only 12 minutes behind. The  
+officers pass ed Piedmont at 1:04 o\&#x27;clock and ar rived at Greenville at  
+1:50 o\&#x27;clock. The first car of the mob arrived in that city just five  
+minutes later, but at that time the prisoner was on his way to  
+Spartanburg. Sheriff King had telephoned to Sheriff Poole at Greenville  
+and the latter had in read- iness a large automobile. A trans- fer from  
 the old machine was made in a twinkling of an eye and the big car then  
-started for Spartanburg 40 miles distant Greenville S C Oct 10 In  
+started for Spartanburg, 40 miles distant Greenville, S. C., Oct. 10.-In  
 the depths of a forest six miles north of Greenville an armed mob of  
-twenty five men headed by Citizen Josh Ashley of Honea Path a  
-member of Anderson county s legislative dele gation overpowered  
-Deputy Sheriff Martin of Anderson county and Sher iff J Perry Poole of  
+twenty- five men, headed by \&quot;Citizen\&quot; Josh Ashley, of Honea Path, a  
+member of Anderson county\&#x27;s legislative dele- gation, overpowered  
+Deputy Sheriff Martin of Anderson county and Sher- iff J. Perry Poole of  
 Greenville coun ty this afternoon and took from their custody one Willis  
-Jackson a 17 year old negro charged with criminally assaulting the  
-11 year old daughter of a prominent citizen of Honea Path at 7 30  
-o clock this morning The trembling negro was placed in the car in  
-which Ashley and four other men rode followed by a train of sev eral  
-automobiles from Anderson and Greenville counties loaded with de  
-termined men and bristling with shot guns and rifles the ring leaders  
-turned in their fury and started to ward Honea Path Promises were made  
+Jackson, a 17-year- old negro, charged with criminally assaulting the  
+11-year-old daughter of a prominent citizen of Honea Path at 7:30  
+o\&#x27;clock this morning. The trembling negro was placed in the car in  
+which Ashley and four other men rode, followed by a train of sev- eral  
+automobiles from Anderson and Greenville counties, loaded with de-  
+termined men and bristling with shot guns and rifles, the ring-leaders  
+turned in their fury and started to- ward Honea Path. Promises were made  
 the sheriff that the negro would be carried back to the scene of his  
-crime and the Older heads con sulted as to what should be done  
-with him There is a general feel ing however that the negro will  
-never see Honea Path alive The capture of the alleged rapist conclud  
-ed one of the most sensationaf man chases this section of the country  
-has ever known Greenville dispatch 10th A long distance telephone  
-message from Honea Path says that at 11 24 o clock tonight Willis  
+crime and the \&quot;Older heads\&quot; con- sulted as to what should be done.  
+with him. There is a general feel ing, however, that the negro will  
+never see Honea Path alive. The capture of the alleged rapist conclud-  
+ed one of the most sensationaf man- chases this section of the country  
+has ever known, Greenville dispatch, 10th. A long distance telephone  
+message from Honea Path says that at 11:24 o\&#x27;clock tonight Willis  
 Jackson was swung to a telephone pole by one of his heels and his body  
-riddled with bullets The negro was taken to the identical spot where  
-the crime wa committed and from there to the nearest telephone pole and  
-swung up by one foot  
+riddled with bullets. The negro was taken to the identical spot where  
+the crime wa committed and from there to the, nearest telephone pole and  
+swung up by one foot.  
   
-AT HANDS OF UNKNOWN MOB  
-Thus Did Willis Jackson Meet His Death Says the Coroner s Jury That  
+AT HANDS OF UNKNOWN MOB.\
+Thus Did Willis Jackson Meet His Death Says the Coroner\&#x27;s Jury. That  
 Willis Jackson came to his death from gunshot wounds at the hands of an  
-unknown mob was the verdict reached by the coroner s jury at Honea Path  
-today The horribly mutilated body was viewed by the jury and was eut  
-down from the tel ephone pole by Coroner Beasly The mother of the  
-negro refused to take the body She says she wouldn t have anything to  
-do with a son of hers that would commit such a crime The negroes  
-refused to allow the body to be interred in their burial grounds so it  
-was buried at the ex pense of the county on the home place of Melvin  
-Ashley Several fing ers of the negro were severed for souvenirs during  
-the night and the rope as it fell to the ground was cut in pieces and  
+unknown mob was the verdict reached by the coroner\&#x27;s jury at Honea Path  
+today. The horribly mutilated body was viewed by the jury and was eut  
+down from the tel- ephone pole by Coroner Beasly, The mother of the  
+negro refused to take the body. She says she wouldn\&#x27;t have anything to  
+do with a son of hers that would commit such a crime. The negroes  
+refused to allow the body to be interred in their burial grounds, so it  
+was buried at the ex- pense of the county on the home place of Melvin  
+Ashley. Several fing- ers of the negro were severed for souvenirs during  
+the night and the rope, as it fell to the ground, was cut in pieces and  
 distributed among a large crowd that had gathered to see him cut from  
-the pole Coroner Beasly and Sheriff King arrived on the scene at 9 30  
-o clock this morning and after experiencing a little trouble in  
-getting a jury will ing to serve the iзquest was begun The body was  
-viewed and the jury then repaired to the office of Magis trate Wilsoh  
-to hear the testimony Five or six witnessess were examin ed but it  
-was impossible to locate any person who admitted seeing the lynching  
-Everybody in the commu nity was reticent and the examina tion of  
-witnesses required only a short time Sheriff King forwarded a short re  
-port from Honea Path to Govern r Blease In the report he referred the  
-Governor to the newspaper ac counts which the sheriff stated were  
-correct in every particular as far as he could determine Citizen  
+the pole. Coroner Beasly and Sheriff King arrived on the scene at 9:30  
+o\&#x27;clock this morning and, after experiencing a little trouble in  
+getting a jury will- ing to serve, the iзquest was begun. The body was  
+viewed and the jury then repaired to the office of Magis- trate Wilsoh  
+to hear the testimony. Five or six witnessess were examin- ed, but it  
+was impossible to locate any person who admitted seeing the lynching.  
+Everybody in the commu- nity was reticent and the examina- tion of  
+witnesses required only a short time. Sheriff King forwarded a short re-  
+port from Honea Path to Govern r Blease. In the report he referred the  
+Governor to the newspaper ac- counts, which the sheriff stated were  
+correct in every particular as far as he could determine. \&quot;Citizen\&quot;  
 Josh Ashly was not a witness of the lynching and neither was his son Joe  
-Ashley These men left the mob with the negro before the crowd reached  
-Honea Path At Honea Path Mayor Sullivan pleaded that the law be allowed  
-to dispose of the negro He read a telegram he had received from Govenor  
-Blease asking that the mob allow the law to take its course and stated  
+Ashley. These men left the mob with the negro before the crowd reached  
+Honea Path. At Honea Path Mayor Sullivan pleaded that the law be allowed  
+to dispose of the negro. He read a telegram he had received from Govenor  
+Blease, asking that the mob allow the law to take its course and stated  
 that he would obtain a special term of court to try the negro within two  
-weeks Pleading was of no avail however for afler taking the negro  
-before the little girl for a second identificatior the crowd proceeded  
-to the scene of attack and there he was s rung up by his l f foot  
-The negro s body was lit rally riddled with bullets not a spot as  
-large as a silver dollar remaining where bullets did not pierce
+weeks. Pleading was of no avail, however, for, afler taking the negro  
+before the little girl for a second identificatior, the crowd proceeded  
+to the scene of attack and there he was s\&#x27;rung up by his l. f. foot.  
+The negro\&#x27;s body was lit rally riddled with bullets, not a spot as  
+large as a silver dollar remaining where bullets did not pierce.
 </td></tr></table>
 
 ---
@@ -183,7 +180,33 @@ body riddled with bullets.
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-le county, yesterday after­  
+uilding in Argoles  
+was swept into the San Juan river.  
+Most of tho property loss caused by  
+the Hood falls upon the Denver and  
+Rio Grande Railroad.  
+Biliousness ls due to a disordered  
+condition of the stomach, Chamber­  
+lain&#x27;s Tablets arc essentially a sto­  
+mach medicine, intended especially to  
+act on that organ; to cleanse it,  
+Btrongthen lt, tone and Invigorate lt,  
+to regulate the liver and banish bil­  
+iousness positively and effectually.  
+For salo by all dealers.  
+the negro&#x27;s body dangling from the  
+pole. Vive thousand people, lt ls es­  
+timated, witnessed tho lynching.  
+Josh Ashley at Head of Crowd,  
+In the depths of a forest six miles  
+north of Grenville an armed mob of  
+twenty-five men. headed by &quot;Citizen&quot;  
+Josh Ashley, of Hones Path, a mom­  
+bo r of Anderson county&#x27;s legislative  
+delegation, overpowered Deputy She­  
+riff Van B. Martin, of Anderson coun­  
+ty, and Sheriff J, Perry Poole, of  
+Greenville county, yesterday after­  
 noon and took from their custody one  
 Willis Jacks e., a 17-year-old negro,  
 Charged with criminally assaulting  
@@ -191,7 +214,7 @@ tho I l-year-old daughter of a promi­
 nent citizen of Hones Path at 7.?I0  
 O&#x27;clock yesterday morning.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_imanidevore_ver02%2Fdata%2Fsn84026912%2F0029455869A%2F1911101101%2F0733.jp2/pct:49.149949,94.275644,15.805282,3.986388/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_imanidevore_ver02%2Fdata%2Fsn84026912%2F0029455869A%2F1911101101%2F0733.jp2/pct:49.149949,78.913466,15.805282,19.348566/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -204,7 +227,6 @@ O&#x27;clock yesterday morning.
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-Groom in?&#x27;. OcI 10. hi the d? pi:  
 of a forest six mile.-, north of Green  
 Vlllo an armed mob of 25 m&gt; n. headed  
 by &quot;Citizen&quot; Josh Ashley of Hone;:  
@@ -227,7 +249,7 @@ ville counties loaded With determ­
 ined men and bristling with shotguns  
 and rifles, tllO
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kikideville_ver02%2Fdata%2Fsn93067760%2F00211109956%2F1911101101%2F1042.jp2/pct:65.258799,72.011270,15.723159,15.227568/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kikideville_ver02%2Fdata%2Fsn93067760%2F00211109956%2F1911101101%2F1042.jp2/pct:65.258799,72.735154,15.723159,14.503684/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -312,9 +334,12 @@ dred people immediately gathered in
 Honea Path and every conceivable  
 hidine nlace was searched. Three  
 negroes were brought before her and  
-she identified Jackson as her assai
+she identified Jackson as her assail  
+ant.  
+Macclesfield Items  
+Macclesfield, N. C, Oct 12 Th
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_adam_ver02%2Fdata%2Fsn92073953%2F00415667176%2F1911101301%2F0594.jp2/pct:63.690476,62.290698,14.536341,9.779070/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_adam_ver02%2Fdata%2Fsn92073953%2F00415667176%2F1911101301%2F0594.jp2/pct:63.690476,62.290698,14.552005,11.953488/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -494,15 +519,14 @@ bullets did not pierce
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-LYNCHED AT HONEA PATH  
-FOR THE USUAL CRIME  
+  
 WILLIS JACKSON CHARGED WITHi  
 ASSAULTING YuNG GIRL.  
 Taken From Officers After Exciting  
 Chase Through Several Coun.  
-ties.
+ties
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.147312,5.859183,16.324251,7.613245/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.147312,9.182669,16.227112,4.289759/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -534,7 +558,15 @@ his body riddled with bullets.
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-f Andersoh county, and Sher­  
+  
+Mob Forcibly Takes Prisoner.  
+Greenville, Oct. 20.-In the depths  
+of a forest, six miles north of Green­  
+ville, headed by &quot;Citizen&quot; Josh Ash­  
+ley, of Honea Path, a member of An­  
+derson county&#x27;s legislative delegation,  
+overpowered Deputy Sheriff Van B.  
+Martin, of Andersoh county, and Sher­  
 iff J. Perry Poole, of Greenville coun­  
 ty, this afternoon, and took from their  
 custody one Willis Jackson, a 17-year­  
@@ -550,21 +582,13 @@ and Greenville counties, loaded with
 determ)ned men and bristling with  
 shotguns and rifles, the ringleaders  
 turned in their fury and started to­  
-ward Honea Path
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.210452,29.868291,16.183399,12.133801/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The herald and news._](https://chroniclingamerica.loc.gov/lccn/sn86063758/1911-10-13/ed-1/seq-3)
-
-#### 1911-10-13 &middot; [Newberry S.C.](http://dbpedia.org/resource/Newberry%2C_South_Carolina)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-t should be done wth him. There  
+ward Honea Path.  
+To Consult &quot;Older Heads.&quot;  
+Promises were made the sheriffs  
+that the negro would be carried back  
+to the scene of his crime and the &quot;old­  
+er heads&quot; of the town consulted as to  
+what should be done wth him. There  
 is a general feeling, however, that the  
 negro will never see Honea Path alive.  
 The capture of the alleged rapist  
@@ -572,7 +596,7 @@ concluded one of the most sensational
 man chases this section of the county  
 h as ever known. About noon today
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.220166,45.667159,16.178542,5.105244/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_garydavis_ver01%2Fdata%2Fsn86063758%2F0023728740A%2F1911101301%2F0171.jp2/pct:3.205595,24.883063,16.207684,25.889340/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -807,21 +831,6 @@ up by his left foot
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-than money, character is worth more  
-tlian anything else in this wide world  
-I would rather have It said of me in  
-my old age than to have a monu  
-ruent of pure gold built over my dead  
-body reaching from earth to heaven?  
-I would rather have it said that &quot;they  
-could And no occasion against him ex  
-cept it he touching the law of his  
-God.&quot; than to have all this world can  
-give?Dwlght l Moody.  
-  
-JOSH ASHLEY LEADS MOB.  
-After Traveling Scores of Mile* Over  
-Muddy Iloads Kn raged Men Took  
 Their Victim.  
 Greenville, Oct. 10.?In the depths  
 of a forest six miles north of Green?  
@@ -858,7 +867,7 @@ concluded one of the most sensation?
 al man chases this section of the  
 country has ever known
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_felicitylane_ver01%2Fdata%2Fsn93067846%2F00294551050%2F1911101401%2F0152.jp2/pct:34.468466,4.103518,32.245302,73.255850/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_felicitylane_ver01%2Fdata%2Fsn93067846%2F00294551050%2F1911101401%2F0152.jp2/pct:50.426263,6.775143,16.287504,23.849372/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1037,8 +1046,6 @@ e lets had not pierced. Everything i
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-The Town of Hone? Path is Quiet  
-After Lynching.  
 Andorson, Oct. ll.-&quot;Willis Jack­  
 son came to his death from gunshot  
 wounds nt the hands of an unknown  
@@ -1106,7 +1113,7 @@ bulletB, not a spot as large as a dol­
 lar remaining where bullets dbl not  
 pierce
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_imanidevore_ver02%2Fdata%2Fsn84026912%2F0029455869A%2F1911101801%2F0743.jp2/pct:33.572895,4.261870,15.731234,45.405931/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_imanidevore_ver02%2Fdata%2Fsn84026912%2F0029455869A%2F1911101801%2F0743.jp2/pct:33.572895,6.097067,15.731234,43.570734/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1374,17 +1381,9 @@ mmit such a crime. The ne­
 refused to allow the body  
 be interred in their burial  
 unds, so it wasf-buried at the  
-nse of the county.  
-Several fingers ;of the negro  
-d been severed for souvenirs  
-ring the night. and the rope  
-&#x27;t fell to the ground was cut  
-ieces and distributed among  
-rge crowd that had gathered  
-the negro cut from the  
-itizen&quot; Josh;Ashley wa
+nse of the county
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_ettabaker_ver02%2Fdata%2Fsn93067671%2F0023728818A%2F1911101901%2F0017.jp2/pct:9.457755,43.745672,13.259539,25.363551/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_ettabaker_ver02%2Fdata%2Fsn93067671%2F0023728818A%2F1911101901%2F0017.jp2/pct:9.457755,43.745672,13.259539,18.951841/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

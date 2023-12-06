@@ -1,9 +1,9 @@
 
-# Cairo - Transcriptions of newspaper articles of interest.md
+# Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
-### 171 reprints from 1909-11-12 to 1910-01-16
+### 172 reprints from 1909-11-12 to 1910-01-16
 
-## Cairo - Transcriptions of newspaper articles of interest.md
+## Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -11,81 +11,83 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-is wife and hanged him to a telephone pole The rope roke and his body  
-was filled with bullets by members of the mob  
+irsty mob stormed the county  
+jail and took out Henry Salzner, a white man, accused of the murder of  
+his wife, and hanged him to a telephone pole. The rope roke and his body  
+was filled with bullets by members of the mob.  
   
-The Lynching of James  
+**The Lynching of James**  
   
 James was killed and burned after he confessed the murder of the  
-shopgirl and implicated another negro Salzner had nothing whatever to  
-do with this crime He was in a cell charged with the murder of his wife  
-and his lynchign was merely a sacrifice to the mob s blood lust  
+shopgirl and implicated another negro. Salzner had nothing whatsoever to  
+do with this crime. He was in a cell charged with the murder of his wife  
+and his lynching was merely a sacrifice to the mob&#x27;s blood lust.  
   
-The mob that hanged James was led by women many of the wives of  
-influential residents of Cairo The rope was pulled taut by female  
-relatives of MIss Pelley aided by several score of their sex As the  
-negro was pulled into the air these same women sand and screamed with  
-delight  
+The mob that hanged James was led by women, many of the wives of  
+influential residents of Cairo. The rope was pulled taut by female  
+relatives of MIss Pelley, aided by several score of their sex. As the  
+negro was pulled into the air, these same women sand and screamed with  
+delight.  
   
 The men were for the most part spectators until the rope that was  
-strangling the negro and his dying body fell to the ground THen hundred  
+strangling the negro and his dying body fell to the ground. THen hundred  
 of revolvers flashed and 500 bullets crashed into the quivering form of  
-the negro The riddled dead man was then dragged through the principal  
+the negro. The riddled dead man was then dragged through the principal  
 streets of the city to the spot where the Pelley girl was assaulted and  
-slain  
+slain.  
   
 Women applied the torch to the bonfire that had been prepared and into  
-which the body of James was thrown Then thousands cheered and danced at  
-the scene  
+which the body of James was thrown. Then thousands cheered and danced at  
+the scene.  
   
 James was lynched from an arch int the most conspicuous portion of the  
-city at Eighth and Commercial streets Women and children living in the  
-outlying sections of the town elderly ladies and even church workers  
-gathered at the square and witnessed the hanging  
+city, at Eighth and Commercial streets. Women and children living in the  
+outlying sections of the town, elderly ladies and even church workers  
+gathered at the square and witnessed the hanging.  
   
-James pleaded piteously for his life but his cries were drowned in the  
-shout of derision from the men and the higher toned screams of the  
-women Before the rope was pulled James implicated Arthur Alexander  
-another negro in the attack on Miss Pelley No sooner the other black s  
-name been mentioned than a large part of the mob detached itself gave  
-up the pleasure of seeing James dangling in the air and started off to  
-look for Alexander  
+James pleaded piteously for his life, but his cries were drowned in the  
+shout of derision from the men and the higher-toned screams of the  
+women. Before the rope was pulled James implicated Arthur Alexander,  
+another negro, in the attack on Miss Pelley. No sooner the other black&#x27;s  
+name been mentioned than a large part of the mob detached itself, gave  
+up the pleasure of seeing James dangling in the air, and started off to  
+look for Alexander.  
   
-James Implicates Alexander  
+**James Implicates Alexander.**  
   
-James was found about 5 o clock Thursday afternoon and the news was  
+James was found about 5 o&#x27;clock Thursday afternoon and the news was  
 spread along the line to the scattered mob to board the Big Four train  
-and meet them at Belknap The whole party arrived at Cairo on the Big  
-Four train at 7 45 and the negro was taken off at Tenth street and  
+and meet them at Belknap. The whole party arrived at Cairo on the Big  
+Four train at 7:45 and the negro was taken off at Tenth street and  
 marched right through the principal streets of the city to the most  
-public location under the city arch at Eighth and Commercial streets  
+public location, under the city arch, at Eighth and Commercial streets.  
 While in custody of the mob at Belknap and coming down on the train the  
-negro would not tell about the crime but when he stood under the arch  
-he weakened and confessed and said Arthur Alexander who was arrested  
-Tuesday in East St Louis and afterwards released was implicated in  
-the crime  
+negro would not tell about the crime, but when he stood under the arch  
+he weakened and confessed and said Arthur Alexander, who was arrested  
+Tuesday in East St. Louis, and afterwards released, was implicated in  
+the crime.  
   
 The mob cae very near getting off the train before it reached Cairo and  
-lynching James but it was finally decided to take the negro into Cairo  
-and give the people a chance there to help with the work  
+lynching James, but it was finally decided to take the negro into Cairo  
+and give the people a chance there to help with the work.  
   
-The mob was so large that the resistance of the officers was fruitless  
-The negro James had been in Cairo off and on for several years He came  
-from the South He said before being lynched that the assault on the  
-girl had been committed before being murdered and that Arthur Alexander  
-had helped him with the crime and that Alexander had some of her  
-jewelry and effects He admitted that he had outraged MIss Pelley before  
-killing her  
+The mob was so large that the resistance of the officers was fruitless.  
+The negro James had been in Cairo off and on for several years. He came  
+from the South. He said before being lynched that the assault on the  
+girl had been committed before being murdered, and that Arthur Alexander  
+had helped him with the crime, and that Alexander had some of her  
+jewelry and effects. He admitted that he had outraged MIss Pelley before  
+killing her.  
   
-Alexander Under Arrest  
+**Alexander Under Arrest**  
   
-It develops that after Alexander was released by the East St Louis  
+It develops that after Alexander was released by the East St. Louis  
 police he returned to Cairo and was arrested and held b
 </td></tr></table>
 
 ---
 
-## Cairo - Transcriptions of newspaper articles of interest.md
+## Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -93,56 +95,54 @@ police he returned to Cairo and was arrested and held b
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
- Salzner and His Crime  
+ Salzner and His Crime**  
   
-Henry Salzner the white man who was lynched at 11 40 o clock by the  
-mob was a photographer by trade and son of William Salzner a Cairo  
-hide and wool buyer  
+Henry Salzner, the white man who was lynched at 11:40 o&#x27;clock by the  
+mob, was a photographer by trade and son of William Salzner, a Cairo  
+hide and wool buyer.  
   
-The public was incensed against him and while a part of the mob was  
-scouring the city for the negro Alexander time hung heavy on the hands  
-of the balance of the mob and when some one suggested Salzner the mob  
-rushed for the county jail where the man wanted was held in the steel  
-cage  
+The public was incensed against him, and while a part of the mob was  
+scouring the city for the negro, Alexander, time hung heavy on the hands  
+of the balance of the mob, and when some one suggested Salzner the mob  
+rushed for the county jail, where the man wanted was held in the steel  
+cage.  
   
-The sheriff and his crowd of deputies were pushed aside and the  
+The sheriff and his crowd of deputies were pushed aside, and the  
 battering down of the door of the cage was at once begun with a sledge  
-hammer that had been secured  
+hammer that had been secured.  
   
-The mob found some difficulty in breaking the cage as it is an entirely  
-steel structure but after a half hour of telling blows upon the door  
-it give way and Salzner was taken The mob rushed in out of the back  
-door of the jail  
+The mob found some difficulty in breaking the cage, as it is an entirely  
+steel structure , but after a half hour of telling blows upon the door  
+it give way and Salzner was taken. The mob rushed in out of the back  
+door of the jail.  
   
 The mob gave Salzner a chance to confess after the rope was around his  
-neck but he was so frightened that he could only mumble that his  
-sisters did the killing  
+neck, but he was so frightened that he could only mumble that his  
+sisters did the killing.  
   
-They became furious at this and it was hard work to keep them off  
-Salzner long enough to give him a chance to pray The mob finally  
-subsided and a short religious service for the benefit of Salzner s soul  
-was held in a businesslike manner after which he was strung up the  
-rope being placed over a telegraph pole at Twenty first and Washington  
-streets  
+They became furious at this , and it was hard work to keep them off  
+Salzner long enough to give him a chance to pray. The mob finally  
+subsided and a short religious service for the benefit of Salzner&#x27;s soul  
+was held in a businesslike manner, after which he was strung up, the  
+rope being placed over a telegraph pole at Twenty-first and Washington  
+streets.  
   
 It is said Salzner gave his wife no money for food for herself and two  
-small babies One night last July Salzner s wife was found at her home  
-with her head broken in and a bloody ax was found under the bed the two  
-babies playing in the blood Salzner had been seen by neighbors about  
-the house early evening and after the crime was discovered Salzner was  
-found at the home of his mother where he often sleep at night All  
-evidence pointed to Salzner as the murderer of his wife and after the  
-crime was discovered Mrs Salzner recovered enough to accuse her husband  
-of the crime  
+small babies. One night last July Salzner&#x27;s wife was found at her home  
+with her head broken in and a bloody ax was found under the bed, the two  
+babies playing in the blood. Salzner had been seen by neighbors about  
+the house early evening, and after the crime was discovered Salzner was  
+found at the home of his mother, where he often sleep at night. All  
+evidence pointed to Salzner as the murderer of his wife, and after the  
+crime was discovered Mrs. Salzner recovered enough to accuse her husband  
+of the crime.  
   
-Deneen Appealed to Too Late  
-  
-While Governor Deneen ordered five companies of state militia to
+**Deneen Appealed to Too
 </td></tr></table>
 
 ---
 
-## Cairo - Transcriptions of newspaper articles of interest.md
+## Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -150,54 +150,45 @@ While Governor Deneen ordered five companies of state militia to
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-oops to put down the  
-rioting  
-  
-Governor Orders Out Militia  
-  
-It was not until 11 o clock Thursday night that Governor Deneen who was  
+day night that Governor Deneen who was  
 at his rooms in the Union League Club at Chicago was notified by Sheriff  
-Davis of the conditions at Cairo over long distance telephone  
+Davis of the conditions at Cairo over long distance telephone:  
   
-Sheriff Davis said to the governors  
+Sheriff Davis said to the governors:  
   
-The streets are filled with people and they are crazy The are storming  
-the jail now and trying to batter down the doors I called for  
-volunteers to help suppress the rioting and not a soul would help me I  
-must have troops  
+&quot;The streets are filled with people and they are crazy. The are storming  
+the jail now and trying to batter down the doors. I called for  
+volunteers to help suppress the rioting and not a soul would help me. I  
+must have troops.&quot;  
   
 Governor Deneen immediately issued orders by telegraph to the following  
-State troops Company D at Carbondale Captain Galbraith Company G at  
-Effingham Captain Austin Company M at Champaign Captain Smith  
-Company A at Casey Captain Steiner Company B at Newton Captain  
-McKinnon  
+State troops: Company D, at Carbondale, Captain Galbraith; Company G, at  
+Effingham, Captain Austin; Company M, at Champaign, Captain Smith;  
+Company A, at Casey, Captain Steiner; Company B, at Newton, Captain  
+McKinnon.  
   
-I have ordered Company D at Carbondale and Company G at Effingham to  
-proceed with all possible speed said Governor Deneen after his  
-telephone conference with Sheriff Davis  
+&quot;I have ordered Company D at Carbondale and Company G at Effingham, to  
+proceed with all possible speed,&quot; said Governor Deneen after his  
+telephone conference with Sheriff Davis.  
   
 Later Sheriff Davis wired Governor Deneen that the mob had lynched both  
-James and Salzner  
+James and Salzner.  
   
-Governor Deneen assured the sheriff that troops were on the way  
+Governor Deneen assured the sheriff that troops were on the way.  
   
-The entire Fourth Regiment will be there in the morning said the  
-Governor and order must be restored I will not tolerate any quibbling  
-with such lawlessness  
+&quot;The entire Fourth Regiment will be there in the morning,&quot; said the  
+Governor, &quot;and order must be restored. I will not tolerate any quibbling  
+with such lawlessness.&quot;  
   
-The troops ordered in the second command from the Governor were Company  
-I Vandalia Captain Bullington Company K Shelbyville Captain  
-Klausen Company L Olney Captain Coen Company D Paris Captain Cady  
-Company F Mount Vernon Captain Satterfield  
-  
-Funeral of Miss Pelley  
-  
-There were two funeral services for Miss Pe
+The troops ordered in the second command from the Governor were: Company  
+I, Vandalia, Captain Bullington; Company K. Shelbyville, Captain  
+Klausen; Company L. Olney, Captain Coen; Company D, Paris, Captain Cady;  
+Company F, Mount Vernon, Captain Satterfield.
 </td></tr></table>
 
 ---
 
-## Cairo - Transcriptions of newspaper articles of interest.md
+## Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -205,59 +196,59 @@ There were two funeral services for Miss Pe
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-marks at the funeral Father J J Downey spoke as follows  
+marks at the funeral Father J. J. Downey spoke as follows:  
   
-What shall I say to express your thoughts your grief and the sorrow  
-that overwhelms you today What shall I say in the presence of those  
-honored remains to bring some consolation to so many broken hearts  
+What shall I say to express your thoughts, your grief, and the sorrow  
+that overwhelms you today? What shall I say in the presence of those  
+honored remains to bring some consolation to so many broken hearts?  
   
 What shall I say to express the sorrow of the people for this terrible  
-crime  
+crime?  
   
-On Monday last everything was peace and happiness In a few hours the  
+On Monday last everything was peace and happiness. In a few hours the  
 hand of the assassin intervened and everything was turned into confusion  
-and grief  
+and grief.  
   
-Cairo has been unfortunate for the last two or three years We have had  
-here a series of abominable crimes Human blood has flowed through the  
-streets on more occasions than one Widows and orphans cry aloud for  
-redress but cry in vain and why  
+Cairo has been unfortunate for the last two or three years. We have had  
+here a series of abominable crimes. Human blood has flowed through the  
+streets on more occasions than one. Widows and orphans cry aloud for  
+redress, but cry in vain and why?  
   
 Unhappy and unfortunate is the community that does not respect the laws  
-of the land and permit me to tell you that the laws will not be  
-respected unless they are enforced Honest judges and honest juries  
+of the land, and permit me to tell you that the laws will not be  
+respected unless they are enforced. Honest judges and honest juries  
 constitute the foundation of the peace and happiness of a people because  
-they have the administration of the law and when the law is justly  
-administered then it commands respect Then every citizen bows his head  
-to the majesty of the law Nothing confers a more salutary effect on a  
+they have the administration of the law, and when the law is justly  
+administered, then it commands respect. Then every citizen bows his head  
+to the majesty of the law. Nothing confers a more salutary effect on a  
 community than the strict and just administration and strict observance  
-of the law Let every citizen take an interest in civic affairs support  
-men with honest convictions men who will punish every offender Then  
-our homes and our people are safe Then we can breathe the free air of  
-liberty and safety Such dreadful crimes as that of Monday will be  
-unknown to our people Confidence will be restored virtue will be  
-respected and peace and security will again reign in our midst  
+of the law. Let every citizen take an interest in civic affairs; support  
+men with honest convictions, men who will punish every offender. Then  
+our homes and our people are safe. Then we can breathe the free air of  
+liberty and safety. Such dreadful crimes as that of Monday will be  
+unknown to our people. Confidence will be restored, virtue will be  
+respected, and peace and security will again reign in our midst.  
   
-The world has nothing superior to a virtuous and upright young lady She  
-is the light and comfort of the home She is the consolation of parents  
-she is the guardian angel of the family She is the pride and honor of  
-companions  
+The world has nothing superior to a virtuous and upright young lady. She  
+is the light and comfort of the home. She is the consolation of parents,  
+she is the guardian angel of the family. She is the pride and honor of  
+companions.  
   
-Her words her actions her ideas kindle truth and affection in all  
-hearts and my dear friends you will hear me out such a young lady was  
-Miss Pelley She was a credit to any home From the very day that she  
+Her words, her actions, her ideas, kindle truth and affection in all  
+hearts, and my dear friends, you will hear me out, such a young lady was  
+Miss Pelley. She was a credit to any home. From the very day that she  
 became a member of this congregation until the hour when she was struck  
-down by the wretched assassin her conduct was such as any congregation  
-might feel proud She represented that splendid class of young ladies  
-who make their living by honest effort and endeavor She had the  
+down by the wretched assassin, her conduct was such as any congregation  
+might feel proud. She represented that splendid class of young ladies  
+who make their living by honest effort and endeavor. She had the  
 intestimable advantage of good home training and she certainly was true  
-to the traditions of her home  
+to the traditions of her home.  
 
 </td></tr></table>
 
 ---
 
-## Cairo - Transcriptions of newspaper articles of interest.md
+## Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -266,13 +257,13 @@ to the traditions of her home
 <table style="width: 100%;"><tr><td style="width: 50%">
 
 d  
-proclamation of martial law crowds of infuriated men congregated about  
-the court house during the afternoon 
+proclamation of martial law, crowds of infuriated men congregated about  
+the court house during the afternoon, 
 </td></tr></table>
 
 ---
 
-## Cairo - Transcriptions of newspaper articles of interest.md
+## Cairo_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -280,16 +271,16 @@ the court house during the afternoon
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-n to building line but the crowd closed in  
+n to building line, but the crowd closed in  
 behind and continued its demonstration of hate and baffled rage or  
-shouted from the roofs of the buildings Even the negroes seemed to  
-enjoy the spectacle  
+shouted from the roofs of the buildings. Even the negroes seemed to  
+enjoy the spectacle.  
   
 A special train on the Illinois Central was waiting at the levee  
-intersection of Twentieth street down which the march was made and  
-five minutes after the prisoner arrived the train departed destination  
-unknown except that it is far enough from Cairo to prevent a repetition  
-of Thursday night s tragedy when WI
+intersection of Twentieth street, down which the march was made, and  
+five minutes after the prisoner arrived the train departed, destination  
+unknown, except that it is far enough from Cairo to prevent a repetition  
+of Thursday night&#x27;s tragedy, when WI
 </td></tr></table>
 
 ---
@@ -398,7 +389,6 @@ ington streets
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-tn able with life wife and it Is said  
 he gave tier no money for food for  
 herself and two small Imbtw*.  
 One night last July Salzner’s wife  
@@ -438,7 +428,7 @@ it...gave way and Salzner was secured
 The mob rushed him out of &quot;he bad  
 door of the Jail, which Is in the bas
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/arhi_electabuzz_ver01%2Fdata%2Fsn89051285%2F00414212712%2F1909111201%2F0307.jp2/pct:19.064684,55.693726,12.152840,23.966047/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/arhi_electabuzz_ver01%2Fdata%2Fsn89051285%2F00414212712%2F1909111201%2F0307.jp2/pct:19.064684,56.336454,12.152840,23.323320/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -451,8 +441,6 @@ door of the Jail, which Is in the bas
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-ple and they arc cnaay,” the sheriff,  
-telephoned, who warn at his looms In  
 the Union League Club.  
 &quot;They are storming the Jail now  
 and trying to batter down the doors.  
@@ -462,7 +450,7 @@ would help me. 1 must have the
 troops.”  
 Governor Deneen, who had alread
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/arhi_electabuzz_ver01%2Fdata%2Fsn89051285%2F00414212712%2F1909111201%2F0307.jp2/pct:31.876008,54.394299,12.206594,6.193237/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/arhi_electabuzz_ver01%2Fdata%2Fsn89051285%2F00414212712%2F1909111201%2F0307.jp2/pct:31.876008,55.665782,12.188676,4.921755/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -475,10 +463,6 @@ Governor Deneen, who had alread
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-ders that all militia companies In  
-southern Illinois be field in readiness,  
-told the sMeriff to utilize the company  
-at Cairo immediately anil that he  
 would rush further troops to the  
 scene.  
 Governor Deneen isswil orders by  
@@ -492,7 +476,7 @@ Company A at Casey, ill., Captain
 Stainer; Company 13 at Newton, 111.,  
 Captain McKinnon
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/arhi_electabuzz_ver01%2Fdata%2Fsn89051285%2F00414212712%2F1909111201%2F0307.jp2/pct:31.858090,62.051139,12.296183,10.049602/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/arhi_electabuzz_ver01%2Fdata%2Fsn89051285%2F00414212712%2F1909111201%2F0307.jp2/pct:31.911844,64.608076,12.242430,7.492665/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -528,6 +512,12 @@ h &lt;&#x27;apt win Cady; Company F. Mount
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+axe. was taken out of the county .jaril  
+at 11:40 o&#x27;clock by the mob and hanged  
+to a telegraph pole and his body riddled  
+with bullets.  
+This lynching followed closely that of  
+Will .James, h negro, earlier* In the even­  
 ing. J­  
 The mob gave Salzner a ehano# to  
 confess after the rope was around his  
@@ -542,12 +532,21 @@ a short religious service for the benefit
 of Salzner&#x27;s soul was held, after which  
 he was strung up. the rope being placed  
 over a telegraph pole at Twenty-first  
-and Washington streets.  
-Salzner was bom and raised here, the  
-son of William Salzner, a hide and wool  
-buyer. He was a photographer and had  
-been married about two years. It was  
-known that he had Jmd trouble with  
+and Washington streets
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_gaston_ver01%2Fdata%2Fsn85038485%2F00340583917%2F1909111201%2F0150.jp2/pct:82.607835,31.368929,12.786901,10.639733/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Birmingham age-herald._](https://chroniclingamerica.loc.gov/lccn/sn85038485/1909-11-12/ed-1/seq-1)
+
+#### 1909-11-12 &middot; [Birmingham, Ala.](http://dbpedia.org/resource/Birmingham%2C_Alabama)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 his wife and It is said gave her no  
 money for food for herself and two small  
 boys.  
@@ -590,7 +589,7 @@ which Is in the basement of the couw ’ S
 house, around the building, through the  
 yard and out into Washington avenu
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_gaston_ver01%2Fdata%2Fsn85038485%2F00340583917%2F1909111201%2F0150.jp2/pct:82.370400,34.322636,14.528097,28.290968/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_gaston_ver01%2Fdata%2Fsn85038485%2F00340583917%2F1909111201%2F0150.jp2/pct:82.370400,44.390798,14.528097,18.222806/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -637,7 +636,21 @@ the crime, but when he stood under the
 arch he weakened and said Arthur Alex­  
 ander was implicated in the crime.  
 The body was burned at the spot where  
-the crime was committed while a crowd of  
+the crime was committed while a crowd o
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_gaston_ver01%2Fdata%2Fsn85038485%2F00340583917%2F1909111201%2F0159.jp2/pct:5.566483,4.904477,25.693352,93.673368/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Birmingham age-herald._](https://chroniclingamerica.loc.gov/lccn/sn85038485/1909-11-12/ed-1/seq-10)
+
+#### 1909-11-12 &middot; [Birmingham, Ala.](http://dbpedia.org/resource/Birmingham%2C_Alabama)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 10,000 looked on and danced in glee. The  
 mob came very near getting off the  
 train before it reached the city and lynch­  
@@ -662,7 +675,7 @@ they were backed up by a big crowd of
 women.  
 Miss Pelley was an orphan girl 22 year
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_gaston_ver01%2Fdata%2Fsn85038485%2F00340583917%2F1909111201%2F0159.jp2/pct:5.566483,4.904477,25.693352,93.673368/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_gaston_ver01%2Fdata%2Fsn85038485%2F00340583917%2F1909111201%2F0159.jp2/pct:18.607396,15.240947,12.613100,9.784003/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -780,25 +793,27 @@ Washington avenue and up to Twenty
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-needed at once to prerent a disastrous  
-outbreak. -s  
-&quot;The street* are fllled with the peo­  
-ple. and they are crasy,” the sheriff  
-telephoned to the Governor, who was  
 at his rooms In the Uhlbn League Club.  
 &quot;They are storming the jail now  
 and trying to batter down the doors.  
 I called for volunteers to help suppress  
 the rioting, and not a soul would help  
 me. I must have troops.” ..  
-Governor Deneen, who had already)  
-been In communication with the State  
-Department at Springfield, giving or­  
-ders that all militia companies In  
-Southern Illinois be held In readiness,  
-told the sheriff to utilise tb« company  
-of militia at Cairo Immediately and that  
-he would rush further troops to the  
+Governor Deneen, who had already
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_jacobs_ver01%2Fdata%2Fsn84020645%2F00513684320%2F1909111201%2F0561.jp2/pct:30.250250,25.472509,12.957958,2.895905/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Montgomery advertiser._](https://chroniclingamerica.loc.gov/lccn/sn84020645/1909-11-12/ed-1/seq-1)
+
+#### 1909-11-12 &middot; [Montgomery, Ala.](http://dbpedia.org/resource/Montgomery%2C_Alabama)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 scene.  
 Governor Deneen Issued orders by  
 telegraph to the following State troops:  
@@ -809,7 +824,7 @@ paign. Captain Smith; Company A, at
 Casey, Captain Burner; Company B, at  
 Newton. Captain McKinnon
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_jacobs_ver01%2Fdata%2Fsn84020645%2F00513684320%2F1909111201%2F0561.jp2/pct:30.250250,23.152921,12.957958,11.930842/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_jacobs_ver01%2Fdata%2Fsn84020645%2F00513684320%2F1909111201%2F0561.jp2/pct:30.310310,31.428981,12.777778,3.654782/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -833,12 +848,9 @@ T, Vandalla. Caputn Bulllngton: Com­
 pany K. ShelbyvllH, Captain Klausen;  
 Company I* Olney. Captain Coen; Com­  
 pany D. Paris, Captain Ca&lt;Jy; Com­  
-Panjr F, Mount Vernon, Captain Sat­  
-T hav# directed General Welle, of  
-Decatur, to take charge of the troops  
-and h* leaves Decatur in a specia
+Panjr F, Mount Vernon, Captain Sat
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_jacobs_ver01%2Fdata%2Fsn84020645%2F00513684320%2F1909111201%2F0561.jp2/pct:30.310310,43.914662,12.797798,6.933706/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_jacobs_ver01%2Fdata%2Fsn84020645%2F00513684320%2F1909111201%2F0561.jp2/pct:30.310310,43.914662,12.777778,5.587772/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -938,12 +950,9 @@ Tenth straet and marched through bc
 principal streets to an arch.  
 Negro Confesses Crovid Dance8.  
 When he stood under the arch he  
-confessed.  
-While James- body was burning  
-at the spot wher the crime was com­  
-mitted. 10,000 people danced In glee
+confessed
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/az_coyote_ver01%2Fdata%2Fsn84024827%2F00211106323%2F1909111201%2F0510.jp2/pct:8.728688,60.172970,11.471460,8.135444/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/az_coyote_ver01%2Fdata%2Fsn84024827%2F00211106323%2F1909111201%2F0510.jp2/pct:8.728688,60.172970,11.471460,6.259162/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -956,6 +965,10 @@ mitted. 10,000 people danced In glee
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+him.  
+Salzner Accuses Sister.  
+Salzener, a photographer by trade.  
+Killed his wife last July with an axe.  
 The mob hanged him to a telegraph  
 pole. His body was riddled with bal­  
 lets. The lynching of Salzener follow  
@@ -968,7 +981,7 @@ came furious at this and It was hard
 work to keep them off Salzner long  
 enough to give him a chance to pra
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/az_coyote_ver01%2Fdata%2Fsn84024827%2F00211106323%2F1909111201%2F0510.jp2/pct:8.061527,79.668719,12.194218,6.303137/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/az_coyote_ver01%2Fdata%2Fsn84024827%2F00211106323%2F1909111201%2F0510.jp2/pct:8.061527,77.308707,12.194218,8.663149/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1107,11 +1120,9 @@ ing to Cairo the nogro would not talk
 about the crime, but when he stood  
 tinder the arch he weakened and con­  
 fessed that he slew Miss Pelley. He  
-said that Arthur Alexander was im­  
-plicated in he crime.  
-, - Spectators Dancod in Glee
+said that Arthur Alexander was im
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ct_madison_ver01%2Fdata%2Fsn82014086%2F00415621127%2F1909111201%2F0103.jp2/pct:4.278179,65.475678,12.326626,8.824796/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ct_madison_ver01%2Fdata%2Fsn82014086%2F00415621127%2F1909111201%2F0103.jp2/pct:4.278179,65.475678,12.326626,7.834697/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1147,26 +1158,9 @@ tirely steel structure, and after a half­
 hour of telling blows upon the door it  
 gave way and Salzner was secured.  
 The mob rushed him out of the back  
-door of the Jail, which is in the base­  
-ment of the. courthouse, around the  
-building, through the yard and out in­  
-to Washington avenue and up to  
-Twenty-first street, which is a promi­  
-nent corner and has a public square.  
-He cried and begged piteously for  
-his life and was met by cries and  
-blows from the mob.  
-.When Salzner was asked for his last  
-statement, a man, a stranger in the  
-crowd, stepped forward and said he  
-believed Salzner was innocent, where­  
-upon the mob fell upon him, kicked  
-him and finally knocked hira down and  
-it was only the plea of calmer persons  
-with the mob that saved his life.  
-After 
+door of the Jail, which is in the base
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ct_madison_ver01%2Fdata%2Fsn82014086%2F00415621127%2F1909111201%2F0103.jp2/pct:17.288533,32.529775,12.365696,17.592194/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ct_madison_ver01%2Fdata%2Fsn82014086%2F00415621127%2F1909111201%2F0103.jp2/pct:17.327603,32.529775,12.326626,10.518008/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1210,10 +1204,9 @@ telegraph to the following state troops
 to proceed to Cairo: Company D wt  
 Carbondale, Company G at Effingham,  
 Company M at Chapalgn. Company A  
-at Case. Company B at Newton.  
-At midniidH Governor Deneen wa
+at Case. Company B at Newton
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ct_madison_ver01%2Fdata%2Fsn82014086%2F00415621127%2F1909111201%2F0103.jp2/pct:17.210393,66.293586,12.404767,2.898551/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ct_madison_ver01%2Fdata%2Fsn82014086%2F00415621127%2F1909111201%2F0103.jp2/pct:17.210393,66.293586,12.404767,2.496771/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1246,6 +1239,9 @@ the killing
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+to a telegraph pole. His body -was  
+riddled with bullets. This lynching  
+followed closely that of Will James,  
 a negro, earlier in the evening.  
 The mob gave Salzner a chance to  
 confess after the rope was around his  
@@ -1273,7 +1269,7 @@ body. He made a partial confession
 and Implicated the negro Arthur Al­  
 exander, whom the mob is now seek
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/curiv_rubidoux_ver01%2Fdata%2Fsn85042462%2F00175035825%2F1909111201%2F0226.jp2/pct:17.617960,79.160305,12.561834,13.507981/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/curiv_rubidoux_ver01%2Fdata%2Fsn85042462%2F00175035825%2F1909111201%2F0226.jp2/pct:17.617960,77.522554,12.561834,15.145732/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1391,12 +1387,6 @@ nocent, whereupon the mob fell on th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-lots, tho ropp broko and the body fell  
-to tlie ground, where It now lies.  
-  
-ILLINOIS GOVERNOR SENDS  
-TROOPS TO SCENE OF RIOT;  
-SHERIFF SENDS TWO CALLS  
   
 CHICAGO, Nov. 11.—Governor Charles  
 U. Deneen, who is in Chicago, talked  
@@ -1416,7 +1406,7 @@ suppress the rioting, and not a souj
 Would lu&#x27;lp mo. 1 must have troops.&quot;  
 Governor Deneen, who has alread
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/curiv_rubidoux_ver01%2Fdata%2Fsn85042462%2F00175035825%2F1909111201%2F0227.jp2/pct:44.449201,39.243581,12.628425,11.311589/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/curiv_rubidoux_ver01%2Fdata%2Fsn85042462%2F00175035825%2F1909111201%2F0227.jp2/pct:44.449201,43.376128,12.604642,7.179042/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1463,9 +1453,6 @@ pavia
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-morning that at least three companies  
-of the Fourth regiment, Illinlols Na­  
-tional Guard, already were well on the  
 way to Cairo, and that he expected the  
 company from Carbondalo to reach  
 the scene of the rioting about 2 o&#x27;clock  
@@ -1483,9 +1470,9 @@ that troops were on the way.
 there in the morning,&quot; said the gov­  
 einor. &quot;and order must be restored. I  
 will not tolerate any quibbling with  
-such lawlessness&quot;.
+such lawlessness&quot;
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/curiv_rubidoux_ver01%2Fdata%2Fsn85042462%2F00175035825%2F1909111201%2F0227.jp2/pct:57.548516,47.095767,12.675989,9.489938/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/curiv_rubidoux_ver01%2Fdata%2Fsn85042462%2F00175035825%2F1909111201%2F0227.jp2/pct:57.548516,48.719639,12.675989,7.866065/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1498,6 +1485,10 @@ such lawlessness&quot;.
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+was charged, killed his wife teat July  
+with an axe He. was hanged to a tele­  
+graph pole and his body was riddle^  
+with bullets.  
   
 in— mob gave Salzner a cranes) sa aanv*  
 fess after the rope waa arwusg km asck.  
@@ -1514,7 +1505,7 @@ which be was strung up. the rope bataa}
 placed over a telegraph pole at Slat  
 and Washington streets. Salzner crie
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/dlc_denmark_ver01%2Fdata%2Fsn83030214%2F00175039582%2F1909111201%2F0194.jp2/pct:84.324908,34.467346,12.864776,6.541814/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/dlc_denmark_ver01%2Fdata%2Fsn83030214%2F00175039582%2F1909111201%2F0194.jp2/pct:84.299219,32.372931,12.890464,8.636229/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1553,13 +1544,6 @@ have (roojs. &#x27;
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-it is alleged killed his wife in  
-July with an axe, was taken out  
-of the county jail at 11:40 by the  
-mob and hanged to a telegraph pole  
-and his body riddled with bullets.  
-The lynching followed closely that of  
-James.  
   
 The mob had difficulty in breaking  
 into the steel cage in the jail, but af­  
@@ -1615,9 +1599,7 @@ was incensed and while part of the
 mob was scouring for the negro Alex­  
 ander, the balance suggested Salzner,  
 and vengeance was vented upon him.  
-When Salzner was asked for a last  
-statement a stranger stepped forward  
-and said he believed Salzner &#x27;as in
+When Salzner was asked for a las
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_allison_ver01%2Fdata%2Fsn83025182%2F00295877285%2F1909111201%2F0311.jp2/pct:5.175422,4.078550,38.607288,91.503021/!600,600/0/default.jpg"/>
 </td>
@@ -1667,8 +1649,6 @@ spot where the crime was committed
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the scene by Governor Deneen upon  
-the appeal of Sheriff Davis over the  
 long distance telephone. Davis call­  
 ed up the governor in Chicago, say­  
 ing:&quot;The streets are filled with people  
@@ -1679,7 +1659,7 @@ teers to suppress the rioting, but not
 a soul would help me. I must have  
 the troops.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/in_georgecrowe_ver01%2Fdata%2Fsn86058226%2F00271744845%2F1909111201%2F0351.jp2/pct:16.494157,64.342857,13.055092,6.565079/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/in_georgecrowe_ver01%2Fdata%2Fsn86058226%2F00271744845%2F1909111201%2F0351.jp2/pct:16.510851,65.447619,13.038397,5.460317/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1835,7 +1815,6 @@ to accuse her huBhnra&#x27;nf t-,A prlrp
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-panies of the Fourth regiment are en  
 route to Cairo and that the Carbon­  
 dale company&quot; would reach the scene  
 at two o&#x27;clock.  
@@ -1845,7 +1824,7 @@ ernor. &quot;I&#x27; will not tolerate any quib­
 bling with such lawlessness.&quot;  
 According to the governor&#x27;s infor
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iune_jump_ver01%2Fdata%2Fsn93055779%2F00295872688%2F1909111201%2F0537.jp2/pct:43.271617,69.156214,12.578736,5.701254/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iune_jump_ver01%2Fdata%2Fsn93055779%2F00295872688%2F1909111201%2F0537.jp2/pct:43.271617,69.811859,12.578736,5.045610/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1917,20 +1896,6 @@ home. :
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-sistance in his power, but the crowd  
-.as too large.  
-The sheriff said that after leaving the  
-train at Dongola he made an effort to  
-secure a rig, but found it impossible  
-as the farmers knew the crime the ne­  
-gro had committed and they refused  
-him assistance. He was scarcely able  
-to get anything to eat. At every point  
-toward which the sheriff headed to  
-board a train he was confronted by  
-B mob. Sheriff Davis said it was impos­  
-sible to turn in any direction and es­  
-cape the vigilance committees. He was  
 surrounded at all times. James was  
 found at 5 o&#x27;clock in the afternoon and  
 news was sent along the line to the  
@@ -1951,7 +1916,7 @@ had been committed on the girl before
 teing murdered and that Arthur Alex­  
 ander helped him with the crime
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_edelbrock_ver01%2Fdata%2Fsn82016014%2F0029587076A%2F1909111201%2F0272.jp2/pct:4.583411,56.666667,12.785303,14.748858/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_edelbrock_ver01%2Fdata%2Fsn82016014%2F0029587076A%2F1909111201%2F0272.jp2/pct:4.657636,62.937595,12.711078,8.477930/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1964,6 +1929,13 @@ ander helped him with the crime
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+Henry Salzener, a white man and a  
+photographer by trade, who killed his  
+wife last July with an axe, was taken  
+out of the county jail at 11:1&#x27; o&#x27;clock  
+by the mob and hanged to a telegraph  
+pole and his body riddled with V-illeU.  
+This lynching followed closely that of  
 Will James, the negro, earlier in the  
 evening.  
 The mob gave Salzener a chance to  
@@ -2008,7 +1980,7 @@ the county jail where the man wanted
 was held in a steel cage. The sheriff  
 and his crowd of deputies were pushe
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_edelbrock_ver01%2Fdata%2Fsn82016014%2F0029587076A%2F1909111201%2F0272.jp2/pct:4.731861,75.251142,12.729634,19.238965/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_edelbrock_ver01%2Fdata%2Fsn82016014%2F0029587076A%2F1909111201%2F0272.jp2/pct:4.731861,72.130898,12.729634,22.359209/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2044,21 +2016,9 @@ Fteel structure, but after a half hour
 cf telling- blows upon&#x27; the door it gave  
 vay and Salzener was taken. The mob  
 rushed him out of the back door of the  
-Jail, which is in the basement of the  
-court house, around the building,  
-through the yard and out into Wash­  
-ington avenue and up to Twenty-first  
-street, which is a prominent corner and  
-has a public square and where there  
-was room enough to hold the gaping  
-crowd. Salzener was so badly fright­  
-ened that he was little more than a  
-crazy man. He cried and begged pite­  
-ously for his life, which was met by  
-cries and blows from the mob.  
-When Salzener was asked lor his
+Jail, which is in the basement of the
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_edelbrock_ver01%2Fdata%2Fsn82016014%2F0029587076A%2F1909111201%2F0279.jp2/pct:4.482312,4.214851,65.456566,42.711503/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_edelbrock_ver01%2Fdata%2Fsn82016014%2F0029587076A%2F1909111201%2F0279.jp2/pct:4.500833,4.214851,65.438044,37.507608/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2111,19 +2071,6 @@ Washington avenue and up to 21s
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-condition anel against such heavy oriels  
-he was helpless. He said after the tak­  
-ing of James from Cairo lie had te&gt;  
-leave the- train at Dongola last night to  
-elude a mob that was waiting for him  
-at a town. Tin- people e-ve-n refused  
-fooel in many cases. At every point  
-where Davis tried to board a train lie  
-was blocked ley a threatening crowd.  
-Aiter a long. e*xbacsting. food less  
-tramp, the sheriff and his deputy had  
-lain down with the prisoner to rest  
-At dusk scoots of the searchers  
 found the three and news was sent  
 along the line to the scatte red mob to  
 board a Pig Four train at Pelknap.  
@@ -2138,21 +2085,9 @@ public place, under the City arch at
 While ir. custody of the mob coming  
 to Cairo the Negro would not talk  
 about the crime, but when he stod un­  
-der the arch he weakened and confess­  
-  
-,1 that he slew Miss Pelley. H“ »ald  
-liat Arthur Alexander was implicated  
-n the crime.  
-The attempt at hanging followed  
-juickly. The growls of the mob. the  
-grinding of the rope and the struggles  
-&gt;f the Negro stopped only a moment,  
-wing to the snapping of the rope. The  
-o.ono persons who had looked on and  
-lanced in glee produced armed men  
-ilmost by magic and they tilled th
+der the arch he weakened and confess
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/me_capens_ver01%2Fdata%2Fsn82014248%2F00513682608%2F1909111201%2F0127.jp2/pct:18.872138,4.643521,25.930579,93.459780/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/me_capens_ver01%2Fdata%2Fsn82014248%2F00513682608%2F1909111201%2F0127.jp2/pct:18.872138,90.498643,12.716360,7.604658/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2165,9 +2100,6 @@ ilmost by magic and they tilled th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-and left it.  
-Salzner was born and reared here.  
-He had been married about two years  
 last July, when his wife was found at  
 her home with her skull fractured. A  
 bloody axe was found under the bed.  
@@ -2182,9 +2114,17 @@ night after rho lynching of James,
 when some one suggested Salzner, the  
 mob rushed for the county jail, got  
 Salzner and lynched him.  
-Search for the Negro Alexander, sup
+Search for the Negro Alexander, sup­  
+posed accomplice of James in the Pel­  
+ley murder, continues.  
+PROFUSION OF FLOWERS  
+At Funeral of Murdered Annie Pelley  
+At Anna, III.  
+Anna, III., Nov. 11.—The remains of  
+the late Miss Annie Pelley, who was  
+murdered in Cairo Monday night, wer
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/me_capens_ver01%2Fdata%2Fsn82014248%2F00513682608%2F1909111201%2F0127.jp2/pct:32.495812,42.891842,12.734971,9.219174/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/me_capens_ver01%2Fdata%2Fsn82014248%2F00513682608%2F1909111201%2F0127.jp2/pct:32.458589,44.406344,12.772194,13.176882/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2243,6 +2183,7 @@ streets
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+with bullets. This lynching followed  
 closely that of Will James earlier in  
 the evening.  
 The mob gave halanor a chance to  
@@ -2296,9 +2237,13 @@ of the cage was itt once begun with a
 sledge hammer.  
 The mob found some difficulty in  
 breaking the cage, a unlid steel struc­  
-ture. but after half an hour of ham
+ture. but after half an hour of ham­  
+mering the door gave way and Sal:­  
+nor was taken out and to Washing­  
+ton avenue and Twenty-first street.  
+adjoining the public square
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_flyingsquirrel_ver02%2Fdata%2Fsn83025316%2F00294554634%2F1909111201%2F0126.jp2/pct:52.763158,60.865724,12.800752,27.385159/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_flyingsquirrel_ver02%2Fdata%2Fsn83025316%2F00294554634%2F1909111201%2F0126.jp2/pct:52.763158,60.335689,12.800752,29.961720/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2356,21 +2301,9 @@ company M at Champaign. Captain
 Smith; company A at Casey. Captain  
 Starner. company a at Newton. Cap­  
 tain McKinnon.  
-At midnight Governor Deneen wa
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_flyingsquirrel_ver02%2Fdata%2Fsn83025316%2F00294554634%2F1909111201%2F0130.jp2/pct:43.040847,76.726682,12.518911,6.906730/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Daily Missoulian._](https://chroniclingamerica.loc.gov/lccn/sn83025316/1909-11-12/ed-1/seq-5)
-
-#### 1909-11-12 &middot; [Missoula, Mont.](http://dbpedia.org/resource/Missoula%2C_Montana)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+At midnight Governor Deneen was  
+appealed to a second time by Sheriff  
+Davis after the mob had dragged  
 Henry Salznor. a white man. from the  
 JaiL Davis declared conditions were  
 beyond his control and he feared  
@@ -2389,7 +2322,7 @@ puay D. Paris. C&#x27;aptin Cady: company
 P. Mount .Vernon. Captain Satter­  
 field
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_flyingsquirrel_ver02%2Fdata%2Fsn83025316%2F00294554634%2F1909111201%2F0130.jp2/pct:43.059758,84.755018,12.537821,8.485832/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_flyingsquirrel_ver02%2Fdata%2Fsn83025316%2F00294554634%2F1909111201%2F0130.jp2/pct:43.040847,76.726682,12.556732,16.514168/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2463,13 +2396,21 @@ the benefit of Salzner&#x27;s soul was held,
 after which he was strung up, the  
 rope being placed over a telegraph  
 pole at Twenty-first and Washington  
-streets.  
-Salzner was born and raised here,  
-being the son of William Salzner, a  
-hide and wool buyer. Salzner was a  
-photographer by trade and had been  
-married about two years. It was  
-known that he had had trouble with  
+streets
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_lynx_ver01%2Fdata%2Fsn84036008%2F00212476602%2F1909111201%2F0716.jp2/pct:81.332357,39.086826,12.353587,15.104790/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Billings gazette._](https://chroniclingamerica.loc.gov/lccn/sn84036008/1909-11-12/ed-1/seq-1)
+
+#### 1909-11-12 &middot; [Billings, Mont.](http://dbpedia.org/resource/Billings%2C_Montana)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 his wife and that he gave her no  
 money for food for herself and two  
 small babies.  
@@ -2487,21 +2428,7 @@ All evidence pointed to Salzner as
 the slayer of his wife, and after the  
 crime was discovered, Mrs. Salzner  
 recovered enough to accuse her hus­  
-hand.
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_lynx_ver01%2Fdata%2Fsn84036008%2F00212476602%2F1909111201%2F0716.jp2/pct:81.332357,39.086826,12.353587,27.679641/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Billings gazette._](https://chroniclingamerica.loc.gov/lccn/sn84036008/1909-11-12/ed-1/seq-1)
-
-#### 1909-11-12 &middot; [Billings, Mont.](http://dbpedia.org/resource/Billings%2C_Montana)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+hand.  
   
 The public was incensed against  
 him and while a part of the mob was  
@@ -2516,26 +2443,9 @@ ties were pushed aside and the batter­
 ing down of the door of the cage was  
 at once began with a sledge hammer.  
 The mob found some difficulty in  
-breaking the cage, a solid steel struc­  
-true, but after half an hour of ham­  
-mering the door gave away and Sals­  
-ner was taken out. The mob dragged  
-Salzner to Washington avenue and  
-Twenty-first street, adjoining the pub­  
-lic square.  
-Salzner cried and begged piteously  
-for his life, but his appeals were met  
-by cries and blows from the mob.  
-When Salzner was asked for his  
-last statement a stranger in the crowd  
-stepped forward and said he believed  
-Salzner was innocent, whereupon the  
-members of the mob fell on him and  
-kicked and struck him and finally  
-knocked him down and it was by hard  
-work by cooler heads o
+breaking the cage, a solid steel struc
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_lynx_ver01%2Fdata%2Fsn84036008%2F00212476602%2F1909111201%2F0716.jp2/pct:81.332357,66.916168,12.298682,16.422156/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_lynx_ver01%2Fdata%2Fsn84036008%2F00212476602%2F1909111201%2F0716.jp2/pct:81.332357,57.080838,12.316984,17.245509/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2587,6 +2497,8 @@ ander was implicated in the crime.
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+  
+-,: JTames Implicates Other. :?*.,  
 While In the custody of the. mob at  
 Belknap and coming down on the  
 train the negro would hot tell about  
@@ -2601,7 +2513,7 @@ The body was burned at the-spot
 where the crime was committed  
 while the crowd., of 10,000 peopl
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_drake_ver01%2Fdata%2Fsn85042242%2F00212478441%2F1909111201%2F1021.jp2/pct:19.894112,53.401884,13.824269,6.312155/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_drake_ver01%2Fdata%2Fsn85042242%2F00212478441%2F1909111201%2F1021.jp2/pct:19.894112,52.778924,13.824269,6.935115/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2759,21 +2671,7 @@ tering down of the door of the cage
 was at once begun with a sledge ham­  
 mer that had been secured.  
   
-Taken Prom Jail.
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_drake_ver01%2Fdata%2Fsn85042242%2F00212478441%2F1909111201%2F1028.jp2/pct:37.153400,4.826906,30.755874,90.490274/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _Bismarck daily tribune._](https://chroniclingamerica.loc.gov/lccn/sn85042242/1909-11-12/ed-1/seq-8)
-
-#### 1909-11-12 &middot; [Bismarck, Dakota [N.D.]](http://dbpedia.org/resource/Bismarck%2C_North_Dakota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+Taken Prom Jail.  
   
 The mob found some difficulty in  
 breaking the cage as it was an en-Dr.  
@@ -2786,19 +2684,9 @@ street, which is a prominent corner
 and has a public square, and where  
 there was room enough to hold the  
 gaping crowd. Salzner was so badly  
-frightened that he was little more  
-than a crazy man. He cried and  
-begged piteously for his life which  
-was met by cries and blows from the  
-mob.  
-  
-Stranger .Nearly Killed.  
-  
-When Salzner was asked for his  
-last statement, a stranger in the  
-crowd stepped forward and said h
+frightened that he was little mor
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_drake_ver01%2Fdata%2Fsn85042242%2F00212478441%2F1909111201%2F1028.jp2/pct:51.695697,18.731278,15.708937,10.734463/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_drake_ver01%2Fdata%2Fsn85042242%2F00212478441%2F1909111201%2F1028.jp2/pct:37.153400,4.826906,30.755874,90.490274/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2892,24 +2780,7 @@ of the back door of the jail, which I
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ndcuffed be­  
-tween two officers and they were ly­  
-ing on the bank of a creek. AH three  
-were so weak from hunger and ex­  
-haustion that they were unuble to of­  
-fer resistance.  
-Sheriff Davis then said that he de­  
-plored the lynching and that he had  
-made every resistance in his power  
-to prevent It. He said after leaving  
-the train at Dongolu last night he  
-made an effort to get a rig hut found  
-It impossible to find one. as the farm­  
-ers refused to assist him. It was with  
-difficulty that the officers could get  
-anything to oat.  
-At every point whither he headed to  
-board a train he was blocked by a  
+  
 mob. James was found about 5  
 o&#x27;clock this afternoon.  
 Word was sent along the line of  
@@ -2926,9 +2797,22 @@ would not tell about the crime, hut
 when he stood under the arch he con­  
 fessed. He said that Arthur Alexan­  
 der was Implicated in the crime,  
-Jams&#x27; body was burned at the spo
+Jams&#x27; body was burned at the spot  
+where the crime was committed  
+while 10.000 people danced in trie.  
+Before the mob reached Cairo, some  
+proposed that the train be &#x27;stopped  
+  
+and the negro lynched at once but  
+it was finally decided to bring him  
+Into Cairo and give the townspeople a  
+chance to help with the work. Rela­  
+tives of the murdered girl took part  
+in the lynching.  
+Mayor Parsons tonight called on  
+Governor Deneen for stute troops t
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nmu_ibis_ver01%2Fdata%2Fsn84031081%2F00296025331%2F1909111201%2F1165.jp2/pct:29.337411,76.097857,12.579001,17.383376/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nmu_ibis_ver01%2Fdata%2Fsn84031081%2F00296025331%2F1909111201%2F1165.jp2/pct:29.337411,11.092539,25.871560,84.394469/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3135,7 +3019,7 @@ died to accuse her husband of ti
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ible as the  
+  
 farmers knew the crime the negro  
 had committed and thev refused him  
 assistance. He was scarcely able to  
@@ -3170,7 +3054,7 @@ of the court house, around the build­
 ing, through the yard and out into  
 Washington avenue and up to Twent
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_greer_ver01%2Fdata%2Fsn97070125%2F00237281378%2F1909111201%2F0706.jp2/pct:20.818005,49.755576,14.563947,22.227314/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_greer_ver01%2Fdata%2Fsn97070125%2F00237281378%2F1909111201%2F0706.jp2/pct:20.818005,50.656890,14.563947,21.326001/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3183,9 +3067,6 @@ Washington avenue and up to Twent
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-that bo was littlo moro thn a crazy  
-man. He cried and bogged piteously  
-for his life, which waB met by cries  
 and blows from the mob.  
 The mob gave Salsener a chance to  
 confess after the rope was around his  
@@ -3193,7 +3074,7 @@ neck, but he was so frightened that
 he could only mumble that his sisters  
 did the killing
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_greer_ver01%2Fdata%2Fsn97070125%2F00237281378%2F1909111201%2F0706.jp2/pct:21.056048,76.076994,14.304263,6.691109/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_greer_ver01%2Fdata%2Fsn97070125%2F00237281378%2F1909111201%2F0706.jp2/pct:21.077689,78.368469,14.282623,4.399633/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3206,16 +3087,6 @@ did the killing
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-  
-as the news had been spread over  
-the country and the farmers knew the  
-  
-crime the negro had committed and  
-  
-lie could get no assistance and hard­  
-ly anything to eat.  
-At every point whore he li-ad-d for  
-a train he was blocked off by a mob.  
 James was found about o&#x27;clock  
 yestc nl.iy afternoon and the i.ews was  
 M&#x27;dt aloriff tie line to the scattered  
@@ -3238,7 +3109,23 @@ and said Arthur Alexander was impli­
 cated in the crime.  
   
 Miss Pelley was an orphan girl, 22  
-years old. Her home was formerl
+years old. Her home was formerly  
+at Anna, 111. For two years she lived  
+here with her sister, Mrs. John Coff­  
+man, of Cairo. She was a salesgirl,  
+and on Monday evening left the store  
+at 6 o&#x27;clock.  
+To avoid a muddy street, she left  
+the car at Twenty-eighth and Elm  
+streets, instead of Sycamore street,  
+as was her custom. It Is believed that  
+  
+the negro met her as soon as she left  
+the car &#x27;and thrust a gag into her  
+mouth and carried her back to Elin  
+street and half a block to the alley.  
+Marks on the ground show she was  
+d
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_jam_ver01%2Fdata%2Fsn83025020%2F00202191198%2F1909111201%2F1019.jp2/pct:32.321188,27.312182,29.892038,66.941036/!600,600/0/default.jpg"/>
 </td>
@@ -3253,12 +3140,6 @@ years old. Her home was formerl
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the ncfrro. Wlien they returned they  
-  
-were met by a howling mob of at least  
-5,00 more. They marched direct to  
-the arch, sweeping everything before  
-them. Many women wore out to help  
 do the work.  
 Sheriff Davis pleaded for the lire of  
 the negro, but without avail, and wken  
@@ -3393,17 +3274,9 @@ all preparations to be made for their
 transportation to Cairo and to go as  
 soon as I got further word from tho  
 sheriff  
-When T first heard of the lynching  
-and rioting J immediately called  
-Cairo on the loiigdlstanco telephone  
-and could not get the sheriff I talked  
-to a police ereant who old me that  
-overj thing was quiet and that the mob  
-had dispersed  
-As soon as I got Sheriff Davis on  
-the telephone discovered that I ha
+When T first heard of the lynchin
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_fourteen_ver01%2Fdata%2Fsn85058398%2Fprint%2F1909111201%2F1071.jp2/pct:28.655370,45.228569,10.808964,15.084834/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_fourteen_ver01%2Fdata%2Fsn85058398%2Fprint%2F1909111201%2F1071.jp2/pct:28.669035,45.228569,10.795299,11.346966/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3415,24 +3288,7 @@ the telephone discovered that I ha
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ion  
-When found by the mob the negro  
-was handcuffed between two officers  
-All were hiding on the bank of a  
-creek All three were so weak from  
-hunger and exposure that they wero  
-unable lo offer resistance  
-Sheriff Davis tonight staled that ho  
-deplored the lynching and that ho  
-made every resistance In his power  
-Ho said that after leaving the train  
-at Dongola last night he tried to got  
-a rig but found it Impossible to find  
-one as the farmers refused lo assist  
-him It was with difficulty that tha  
-sheriff could get anything to eat  
-At every point whither he headed  
-to board a train ho was blocked by a  
+  
 mob James was found about 5 oclock  
 this afternoon Word was sent along  
 the lino to the scattered mob to board  
@@ -3467,7 +3323,7 @@ restore order here
 Miss Pelley was an orphan girl 22  
 years old Her home was formerly a
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_fourteen_ver01%2Fdata%2Fsn85058398%2Fprint%2F1909111201%2F1071.jp2/pct:51.585133,55.464177,10.877289,23.920130/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_fourteen_ver01%2Fdata%2Fsn85058398%2Fprint%2F1909111201%2F1071.jp2/pct:51.598797,63.932726,10.863624,15.451582/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3479,15 +3335,7 @@ years old Her home was formerly a
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ng and the  
-evidence pointed to him as he could  
-not account for his whereabouts at the  
-time Miss Pelley was killed The city  
-jail was stormed several times Wedn­  
-esday and Wednesday evening Jamoa  
-was hurried from tho city  
-WHITE MAN LYNCHED BY MOB  
-Cairo Ills Nov 1L Tonight Cairo  
+  
 Is a seething mob Henry Salzner a  
 white man and a photographer by  
 trade who killed his wife last July  
@@ -3551,7 +3399,7 @@ pushed aside and the battering down
 I  
 of lie CIIRO was at onqe begun wit
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_fourteen_ver01%2Fdata%2Fsn85058398%2Fprint%2F1909111201%2F1071.jp2/pct:62.804045,60.780173,11.246242,34.729940/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_fourteen_ver01%2Fdata%2Fsn85058398%2Fprint%2F1909111201%2F1071.jp2/pct:62.804045,66.755575,11.246242,28.754538/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3577,18 +3425,9 @@ Commercial streets. While in custody
 of the mob at Belknap and coming down  
 on the train, the negro would not tell  
 about the crime, but. when ho stood  
-under the arch hc confessed, lie said  
-that Arthur Alexander was implicated  
-in the crime.  
-While James&#x27;s body was burning at  
-Ihe spot when; the crime was count-ted,  
-10,000 people danced iu glee. Be­  
-fore the mob reached Cairo, some pro­  
-posed that the train be stopped and the  
-negro lynched at once, but it was  
-finally decided to bring him into Cair
+under the arch hc confessed, lie sai
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_ocana_ver01%2Fdata%2Fsn83045396%2Fprint%2F1909111201%2F0470.jp2/pct:13.417993,52.631579,13.203794,10.713450/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_ocana_ver01%2Fdata%2Fsn83045396%2Fprint%2F1909111201%2F0470.jp2/pct:13.417993,52.631579,13.157895,6.432749/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3747,9 +3586,21 @@ and are trying to batter down the
 doors I called for volunteers to help  
 suppress the rioting and not a soul  
 would help me I must have troops  
-Governor Deneen who had already  
-been In communication with the state  
-department at Springfield giving or­  
+Governor Deneen who had alread
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_seven_ver01%2Fdata%2Fsn85058140%2F00175049861%2F1909111201%2F0190.jp2/pct:56.739542,34.996912,12.889482,10.982088/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Salt Lake herald-Republican._](https://chroniclingamerica.loc.gov/lccn/sn85058140/1909-11-12/ed-1/seq-1)
+
+#### 1909-11-12 &middot; [Salt Lake City, Utah](http://dbpedia.org/resource/Salt_Lake_City)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 ders that all militia companies In  
 southern IBllnols be held In readiness  
 laId the sherI to utilize the company  
@@ -3780,10 +3631,9 @@ tiler word from the sheriff
 Lied to the Governor  
 When I first heard ot the lynching  
 and rioting 1 Immediately called Cairo  
-on the long distance telephone and  
-could not get the sheriff I talked 
+on the long distance telephone an
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_seven_ver01%2Fdata%2Fsn85058140%2F00175049861%2F1909111201%2F0190.jp2/pct:56.739542,34.996912,13.117576,24.061149/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_seven_ver01%2Fdata%2Fsn85058140%2F00175049861%2F1909111201%2F0190.jp2/pct:56.997762,46.951822,12.859356,11.710933/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3821,7 +3671,21 @@ and wool buyer 8alznor was a photog­
 rapher by trade and had been married  
 about two years It was known that he  
 I  
-had had trouble with his wife and It IS  
+had had trouble with his wife and It I
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_seven_ver01%2Fdata%2Fsn85058140%2F00175049861%2F1909111201%2F0191.jp2/pct:30.786478,13.991054,25.457054,82.526715/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Salt Lake herald-Republican._](https://chroniclingamerica.loc.gov/lccn/sn85058140/1909-11-12/ed-1/seq-2)
+
+#### 1909-11-12 &middot; [Salt Lake City, Utah](http://dbpedia.org/resource/Salt_Lake_City)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 said gave her no money for food for her  
 self and two small babies One night  
 last July Salznors WIfe was found at her  
@@ -3859,7 +3723,7 @@ avenue and Twentytlrst street adjoin­
 Ing the pUblic square  
 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_seven_ver01%2Fdata%2Fsn85058140%2F00175049861%2F1909111201%2F0191.jp2/pct:30.786478,13.991054,25.629527,82.526715/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/uuml_seven_ver01%2Fdata%2Fsn85058140%2F00175049861%2F1909111201%2F0191.jp2/pct:43.221801,19.296720,13.194205,13.692843/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3924,9 +3788,6 @@ President Taft Principal Speak-[ mem of the court bouse around th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-heard a train he was blocked by a  
-mena&lt; ing crowd.  
-After a hmg. exhausting, fnodb.-s  
 walk, the sheriff and his deputy laid  
 down with the prisoner to n st  
 At dusk scouts of the searchers  
@@ -3952,7 +3813,7 @@ The alt-m|?t at hanging followed
 qnk-aly. the growling of the mob the  
 grinding of the ro-re and the straggle
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_eggplant_ver01%2Fdata%2Fsn83045830%2F00175031376%2F1909111201%2F0039.jp2/pct:56.548690,73.938923,14.157169,18.669772/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_eggplant_ver01%2Fdata%2Fsn83045830%2F00175031376%2F1909111201%2F0039.jp2/pct:56.602013,75.988613,14.103846,16.620083/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3986,12 +3847,6 @@ door of the jall, which ls ln the base
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-the three, and news was sent along  
-the llne to the scattered mob to board  
-a Blg Four traln at Belknap. Thls  
-order was obeyed, and a numerous  
-crowd was on the traln when lt reach?  
-ed here about 8 o&#x27;clock.  
 The negro was marched rlght  
 through the prlncipal streets to the  
 . most publlc placo under the clty arch  
@@ -4015,7 +3870,7 @@ the negro with bullets.
 Then, not satlsfled with vengeance,  
 the mob dragged tho body to the plac
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_fairfax_ver01%2Fdata%2F3020-0048%2F3020-0048%2Fsn85038615%2F00100480128%2F1909111201%2F1184.jp2/pct:4.662663,44.808531,13.346285,12.891249/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vi_fairfax_ver01%2Fdata%2F3020-0048%2F3020-0048%2Fsn85038615%2F00100480128%2F1909111201%2F1184.jp2/pct:4.662663,47.515434,13.346285,10.184346/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4090,12 +3945,6 @@ streets
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-given to Salzner.  
-After Salzner was. hanged and while  
-the -body .was being riddled with bullets,  
-the rope broke and the body fell  
-to the ground, where It now lies, the  
-mob going away and leaving It.  
 Salzner was born and raised near  
 here. Ho had been married about  
 two years last July, wnen his wife was  
@@ -4108,7 +3957,7 @@ often slept at night Before Mrs. Salzner
 died she recovered enough to accuse  
 her hudband of attacking her
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wvu_brubeck_ver02%2Fdata%2Fsn86092557%2F00415660194%2F1909111201%2F0228.jp2/pct:56.076891,51.712101,15.998346,9.046709/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wvu_brubeck_ver02%2Fdata%2Fsn86092557%2F00415660194%2F1909111201%2F0228.jp2/pct:56.252584,54.733211,15.822654,6.025598/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4120,7 +3969,8 @@ her hudband of attacking her
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+The mob then  
+dragged the corpse over a mile to the  
   
 scene of the murder of Miss Pelley,  
 9Dd there burned the body. In his  
@@ -4156,7 +4006,7 @@ the jail, which Is in the basement of
 &#x27;the court house, ai*bund the building,  
 through the yatd and out into Wash
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_jackson_ver01%2Fdata%2Fsn86061215%2F00415668788%2F1909111301%2F0783.jp2/pct:3.610126,60.765386,13.730943,13.918883/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_jackson_ver01%2Fdata%2Fsn86061215%2F00415668788%2F1909111301%2F0783.jp2/pct:3.610126,59.681789,13.730943,15.002480/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4169,20 +4019,6 @@ through the yatd and out into Wash
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-down and it was by hard work by the  
-cooler heads of the mob that  
-  
-MB  
-  
-life  
-  
-•yraa saved. He was compelled to beg  
-for mercy from the mob and announc­  
-ed in a loud voice that Selzner Bhould  
-be lynched, after which he was driven  
-from the mob and all attention was  
-given to Selzner, who cried and  
-:&#x27;begged and mumbled his sisters had  
 tkilled his wife. His manner did not  
 &#x27;appeal to the mob and they immedi­  
 ately clamored for his execution.  
@@ -4201,7 +4037,7 @@ Balener long enough to give him time
   
 ^.(Continued on Pace 7.)
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_jackson_ver01%2Fdata%2Fsn86061215%2F00415668788%2F1909111301%2F0783.jp2/pct:4.636111,82.956236,12.733723,12.266779/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_jackson_ver01%2Fdata%2Fsn86061215%2F00415668788%2F1909111301%2F0783.jp2/pct:4.770352,87.599679,12.599482,7.623335/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4289,15 +4125,6 @@ and burned it where the murder wa
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-this afternoon. The crowd over­  
-powered the, officers and took the  
-negro from them, and after a coh­  
-  
-lerenee n was ueciueu 10 tiring me  
-black back to this city and lynch  
-him here.  
-LYNCHING OF WHITE MAN.  
-Cairo, 111., Nov. 11.—Tonight  
 Cairo is one seething mob. Henry  
 Salzner, a white man and a photo­  
 grapher by trade, who killed his  
@@ -4325,7 +4152,7 @@ placed over a telegraph pole at
 Twenty-first and Washington  
 streets
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/msar_beryl_ver01%2Fdata%2Fsn86074065%2F00383343707%2F1909111301%2F0173.jp2/pct:37.759005,30.695004,11.001753,18.434714/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/msar_beryl_ver01%2Fdata%2Fsn86074065%2F00383343707%2F1909111301%2F0173.jp2/pct:37.759005,35.251008,10.969876,13.878710/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4337,15 +4164,7 @@ streets
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
- the matter rest  
-for the present, and the mob dispersed  
-and the city Is so calm and quiet that no  
-signs can be detected of th mob&#x27;H work  
-by the casual observer.  
-James, confessed murderer of Annie Pel­  
-ley, was hanged, riddled with bullets and  
-burned early last night after 1.000 deter­  
-mined men had chased Sheriff Davis and  
+  
 the negro for twenty-four hours and seized  
 the prisoner.  
 Henry Salmer, white, held for uxorclde,  
@@ -4363,7 +4182,7 @@ enough to give him a chance to. pray. The
   
 m
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nbu_quarrie_ver01%2Fdata%2Fsn99021999%2F00280778801%2F1909111301%2F0288.jp2/pct:16.882656,70.439396,12.604296,14.338185/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nbu_quarrie_ver01%2Fdata%2Fsn99021999%2F00280778801%2F1909111301%2F0288.jp2/pct:16.882656,74.792545,12.604296,9.985036/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4383,21 +4202,11 @@ wns held, after which he was strung up.
 the rope being placed over a telegraph pole  
 at Twenty-first and Washington Btreets.  
 Balsner Killed Wife.  
-Ealzner was born and raised here, bein
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nbu_quarrie_ver01%2Fdata%2Fsn99021999%2F00280778801%2F1909111301%2F0288.jp2/pct:30.019528,56.726976,12.604296,3.496123/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _Omaha daily bee._](https://chroniclingamerica.loc.gov/lccn/sn99021999/1909-11-13/ed-1/seq-4)
-
-#### 1909-11-13 &middot; [Omaha [Neb.]](http://dbpedia.org/resource/Omaha%2C_Nebraska)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+Ealzner was born and raised here, being  
+the son of William Salzner, a hide and  
+wool buyer, tialzner was a photographer  
+and had been married about two years. It  
+was known that he had had troifble with  
 his wife and it Is said gave her no money  
 for food for herself and two small babies.  
 One night last July, Salzucr&#x27;g wife was  
@@ -4435,7 +4244,7 @@ of the back door of the Jail, which is In
 the basement of the court house, around  
 the building, through the yard and out Int
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nbu_quarrie_ver01%2Fdata%2Fsn99021999%2F00280778801%2F1909111301%2F0288.jp2/pct:30.001775,62.372466,12.657554,16.405931/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nbu_quarrie_ver01%2Fdata%2Fsn99021999%2F00280778801%2F1909111301%2F0288.jp2/pct:30.001775,56.726976,12.657554,22.051422/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4498,20 +4307,6 @@ an assault had been oommltted before th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-The mob that chased the sheriff  
-and the negro was so large that it  
-scoured the entire country from  
-Karnak to Vienna, 111., a distance  
-of about sixteen miles.  
-When found by the mob the ne­  
-gro was handcuffed between two of­  
-ficers, and all three were lying on  
-the bank of a creek. All three were  
-so weak from hunger, exposure and  
-the futile attempt to elude the mob  
-that they were not able to make  
-much resistance.  
-While in custody of the mob com­  
 ing to Cairo the negro would not  
 talk aoout the crime, but when he  
 stood under the arch he weakened,  
@@ -4536,7 +4331,7 @@ found. A roaring fire Nw as built and
 the body was incinerated.  
 James, who came from the South
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_gnomiemoore_ver01%2Fdata%2Fsn86063756%2F00294558810%2F1909111301%2F0393.jp2/pct:1.418093,56.883448,14.175496,21.715527/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_gnomiemoore_ver01%2Fdata%2Fsn86063756%2F00294558810%2F1909111301%2F0393.jp2/pct:1.591959,65.067955,14.001630,13.531020/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4577,9 +4372,20 @@ ed. The mob rushed him out of the
 back door of the jail, which is in  
 the basement of the court house,  
 around the building through the yard  
-and out into Washington avenue
+and out into Washington avenue,  
+and up to 21st street, which is a  
+prominent corner and has a public  
+square.  
+He cried and begged piteously for  
+his life and was met by cries and  
+blows from the mob. When -Salzner  
+was asked for his last statement a  
+man, a stranger in the crowd, step­  
+ped forward and said he believed  
+Salzner was innocent, whereupon the  
+mob fell upon him, kicked him ?an
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_gnomiemoore_ver01%2Fdata%2Fsn86063756%2F00294558810%2F1909111301%2F0393.jp2/pct:15.104591,19.925868,14.175496,17.316260/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_gnomiemoore_ver01%2Fdata%2Fsn86063756%2F00294558810%2F1909111301%2F0393.jp2/pct:15.104591,19.925868,14.175496,23.617507/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4824,13 +4630,6 @@ James was found with Sherif
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-The crowd overpowered the officers  
-and took the negro from them and  
-after a conference it was decided to  
-bring the negro back to this city and  
-lynch him here.  
-  
-Fully 1,000 people went up to help  
 find the negro and when they arrived  
 in Cairo they were met by a howling  
 mob of at least 5,000 more. They  
@@ -4849,7 +4648,7 @@ girl before being murdered and that
 Arthur Alexander helped him with the  
 crime.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_ford_ver01%2Fdata%2Fsn89081022%2F00212472426%2F1909111701%2F0395.jp2/pct:26.910601,51.165721,11.085161,11.079605/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_ford_ver01%2Fdata%2Fsn89081022%2F00212472426%2F1909111701%2F0395.jp2/pct:26.910601,54.316320,11.085161,7.929007/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4884,11 +4683,9 @@ fingham, Captain Austin Com­
 pany M, at Champaign, Captain  
 Smith Company A, at Casey,  
 Captain Sarner Company B, at  
-Newton, Captain MjcKinnon.  
-  
-Governor Deneen was appeale
+Newton, Captain MjcKinnon.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_ford_ver01%2Fdata%2Fsn89081022%2F00212472426%2F1909111701%2F0395.jp2/pct:27.542061,13.243016,9.904416,11.013092/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_ford_ver01%2Fdata%2Fsn89081022%2F00212472426%2F1909111701%2F0395.jp2/pct:27.542061,13.243016,9.904416,10.487993/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5010,17 +4807,9 @@ Smith; Company A, at Casey,
 Captain Starner; Company B, at  
 Newton, Captain McKinnon.  
 At midnight Governor Deneen  
-was appealed to a second time by  
-Sheriff Davis after the mob had  
-succeeded in its furious vengeance  
-and dragged Salzner, from the  
-jail. Davis declared that condi­  
-tions were impossible for him to  
-cope with and that he feared  
-wholesale murder.  
-The governor immediately Is
+was appealed to a second time b
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_eagle_ver02%2Fdata%2Fsn83025323%2F00294554774%2F1909111701%2F0599.jp2/pct:36.367188,26.633987,12.753906,15.876906/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_eagle_ver02%2Fdata%2Fsn83025323%2F00294554774%2F1909111701%2F0599.jp2/pct:36.386719,26.633987,12.734375,11.301743/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5078,7 +4867,13 @@ was raining and to avoid a mudd
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
+legram was received by  
+friends of Miss Pelley that the trio  
+were in the woods there, a box car  
+train was quickly made up and de­  
+parted for Karnack, filled with men.  
+These men brought the girl&#x27;s slayer  
+back to Cairo.  
   
 WHITE MAN SECOND VICTIM.  
 Blood Thirsty Mob Doesn&#x27;t Draw the  
@@ -5107,7 +4902,7 @@ after which he was strung up, the rope
 being placed over a telegraph pole at  
 Twenty-first and Washington streets
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_eagle_ver02%2Fdata%2Fsn83025323%2F00294554774%2F1909111701%2F0599.jp2/pct:50.332031,49.550654,14.179688,15.563725/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_eagle_ver02%2Fdata%2Fsn83025323%2F00294554774%2F1909111701%2F0599.jp2/pct:50.332031,45.002723,14.179688,20.111656/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5210,21 +5005,7 @@ subsided and a short religious service
 was held, after which he was strung  
 up. the rope being placed over a tele­  
 graph pole at 21st and Washington  
-streets
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_babytate_ver01%2Fdata%2Fsn86063760%2F00294550677%2F1909111701%2F0129.jp2/pct:13.401105,20.485835,12.421668,10.302489/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Manning times._](https://chroniclingamerica.loc.gov/lccn/sn86063760/1909-11-17/ed-1/seq-1)
-
-#### 1909-11-17 &middot; [Manning, Clarendon County, S.C.](http://dbpedia.org/resource/Manning%2C_South_Carolina)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+streets.  
 The mob found some difMiculty in­  
 breaking the cage. as it was an en­  
 tirely steel structure, but after a half  
@@ -5233,10 +5014,9 @@ it gave way and Sakuer was secu- I
 9&amp; The mob rushed him out of the  
 back door of the jaI, which Is in!  
 the basement of the court house. t  
-around the building through the yard I  
-and out Into Waahington avenue. 
+around the building through the yard 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_babytate_ver01%2Fdata%2Fsn86063760%2F00294550677%2F1909111701%2F0129.jp2/pct:13.684259,30.646015,12.560925,5.427588/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_babytate_ver01%2Fdata%2Fsn86063760%2F00294550677%2F1909111701%2F0129.jp2/pct:13.401105,20.485835,12.844079,15.078104/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5311,8 +5091,6 @@ Into Washington avenue, and up to
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-Salsner was born and reared here.  
-He had been married about two years  
 last July, when his wife was found  
 at her home with her akul fractured.  
 A hoodly axe was found under the  
@@ -5323,7 +5101,7 @@ ten slept at night. Beforo Mrs. Salz?
 ner died -du- r. . . .\. , , ,l enough to ac?  
 cuse her husband of attacking her
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_jinx_ver01%2Fdata%2Fsn93067846%2F00294551025%2F1909111701%2F0231.jp2/pct:0.993895,77.189518,16.238345,7.588866/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_jinx_ver01%2Fdata%2Fsn93067846%2F00294551025%2F1909111701%2F0231.jp2/pct:0.993895,78.537396,16.238345,6.240988/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5364,7 +5142,6 @@ yard and out into Washington avenu
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-riddled with bullets. The lynching  
 &lt;1 followed closely on the lynching of  
 Will James, a negro, who eariler in r  
 the evening had been hanged for  
@@ -5394,20 +5171,9 @@ ed. The mob rushed him out of the
 back door of the jail, which Is In 11  
 n the basement of the court house, t  
 around the building through the yard 11  
-and out into Washington avenue, f  
-l* and up to 21st street, which is a  
-prominent corner and has a public n  
-^ sniiara ^  
-  
-d He cried and begged piteously for f,  
-k his life and was met by cries and ii  
-a blows from the mob. When Salzner c  
-g was asked for his last statement a a  
-^ man, a stranger in the crowd, step- d  
-ped forward and said he believed a  
-g Salzner was innocent, whereupon the 
+and out into Washington avenue, 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kingjulius_ver01%2Fdata%2Fsn84026853%2F00202192932%2F1909111701%2F0475.jp2/pct:14.694509,14.714427,15.313225,21.977749/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kingjulius_ver01%2Fdata%2Fsn84026853%2F00202192932%2F1909111701%2F0475.jp2/pct:14.694509,15.384070,15.287445,15.766723/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5525,9 +5291,11 @@ and finally knocked him down. He
 was compelled to beg for mercy from  
 the mob and announced loudly that  
 Salzner should be lynched.   
-After Salzner was hanged, whil
+After Salzner was hanged, while  
+the body was being riddled with bul­  
+lets, the rope broke and the body fel
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/whi_clearwater_ver01%2Fdata%2Fsn85040613%2F00514151416%2F1909111701%2F0517.jp2/pct:21.486585,57.073779,13.947236,8.660895/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/whi_clearwater_ver01%2Fdata%2Fsn85040613%2F00514151416%2F1909111701%2F0517.jp2/pct:21.486585,57.073779,13.947236,9.819061/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5583,21 +5351,9 @@ to the scene.
 “I have ordered companies from  
 Carbondale and Effingham, to proceed  
 to Cairo with all possible speed,” said  
-Governor Deneen. “Other companies  
-have been ordered to assemble imme­  
-diately and all preparations made tor  
-their transportation to Cairo and to  
-go as soon as I get further word from  
-the sheriff.   
-  
-“When I first heard of the lynching  
-and rioting I immediately called up  
-Cairo on the telephone but could not  
-get the sheriff. I talked to the police  
-sergeant who told me everything was  
-quiet and the mob dispersed.
+Governor Deneen. “Other companie
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/whi_clearwater_ver01%2Fdata%2Fsn85040613%2F00514151416%2F1909111701%2F0517.jp2/pct:21.542598,5.416472,27.995295,87.747621/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/whi_clearwater_ver01%2Fdata%2Fsn85040613%2F00514151416%2F1909111701%2F0517.jp2/pct:21.542598,5.416472,27.838459,87.747621/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5768,10 +5524,9 @@ thur Alexander helped him with the
 crime.  
 James was lynced in the most  
 prominent square of the city at  
-Eighth and Commercial streets.  
-Women present were told to pul
+Eighth and Commercial streets
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/msar_jacard_ver01%2Fdata%2Fsn86090233%2F00199917468%2F1909111801%2F0427.jp2/pct:81.212842,38.991901,12.277051,6.159420/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/msar_jacard_ver01%2Fdata%2Fsn86090233%2F00199917468%2F1909111801%2F0427.jp2/pct:81.212842,38.991901,12.262188,5.658568/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5875,6 +5630,7 @@ Washington avenue and up to Twenty
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+that troops were necessary. The  
 Oove-nor ordered 1 1 companies of  
 the State Guard to Cairo at once.  
 The mob gave Salzner a chance to  
@@ -5907,7 +5663,7 @@ playing in the mother&#x27;s blood. Salz­
 ner was found at the home of his  
 mother where he often slept at
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/pst_jordan_ver01%2Fdata%2Fsn86081889%2F00280776750%2F1909111801%2F0387.jp2/pct:45.970028,23.735119,12.697448,14.122024/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/pst_jordan_ver01%2Fdata%2Fsn86081889%2F00280776750%2F1909111801%2F0387.jp2/pct:45.970028,23.244048,12.697448,14.613095/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5982,10 +5738,9 @@ place where Miss Pelley&#x27;s body,
 bound, gagged and bruised had been  
 found. A roaring fire was built and  
 the body was incinerated.  
-James, who came from the South,  
-said Miss Pelley had been assaulte
+James, who came from the South
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F0029586302A%2F1909111801%2F0018.jp2/pct:-0.916257,66.497378,20.945946,18.608511/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F0029586302A%2F1909111801%2F0018.jp2/pct:-0.916257,66.497378,20.945946,18.070769/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6091,6 +5846,9 @@ Search for the negro, Alexander
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+evening had been hanged for the t  
+murder &lt;&gt;f Miss Annie Pelley.  
+The doverno;-. who is m Chicago,  
 ord-red elevei. companies of the State  
 guaru to Cairo at once.  
 &#x27;1 he mob gave Salzner a chance to  
@@ -6120,7 +5878,7 @@ of the court house, around the
 bu lling, through the yard and out  
 intc Washington avenue aud up t
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_elgincatfishstomp_ver02%2Fdata%2Fsn93067841%2F00295862567%2F1909111801%2F0286.jp2/pct:3.925780,20.514886,18.280532,20.933088/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_elgincatfishstomp_ver02%2Fdata%2Fsn93067841%2F00295862567%2F1909111801%2F0286.jp2/pct:3.925780,18.166820,18.280532,23.281154/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6158,21 +5916,6 @@ her husband of attacking her
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-The mob thnt chased the sherif  
-and the negro was so large that it  
-scoured the entire country from  
-Karnak to Vienna. 111., a distanc*  
-of about sixteen miles.  
-When found by the mob the negro  
-was handcuffed between two officers,  
-and all three were lying 01  
-the bank of a creek. All three wen  
-so weak from hunger, exposure am  
-the futile attempt to elude the mol  
-that they were not ablo to iuak?  
-  
-much resistance.  
-While in custody of the moh com  
 Ing to Cairo the negro would no  
 talk about tho crime, but when hstood  
 under- the arch he weakened  
@@ -6197,7 +5940,7 @@ found. A roaring fire was built aa
 the body was incinerated.  
 James, who came from the Sout
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kershawhogjam_ver03%2Fdata%2Fsn86063778%2F00415620226%2F1909111801%2F0481.jp2/pct:3.666568,57.794090,15.590288,20.647468/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kershawhogjam_ver03%2Fdata%2Fsn86063778%2F00415620226%2F1909111801%2F0481.jp2/pct:3.794358,65.586298,14.803893,12.855261/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6209,6 +5952,7 @@ James, who came from the Sout
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
+  
   
 &lt;-u iu tx poie, ana ms uoay  
 riddled with bullets. The lynching  
@@ -6239,9 +5983,21 @@ The mob rushed him out of the
 back door of the jail, which is in  
 the basement of the court house,  
 around the building through the yard  
-and out into Washington avenue
+and out into Washington avenue,  
+and up to 21st street, which is a  
+prominent corner and has a public  
+square.  
+He cried and begged piteoucly for  
+his life and was met by cries and  
+blows from the mob. When Balzner  
+was asked for his last statement a  
+man, a stranger in the crowd, stepped  
+forward and said ho believed  
+  
+aaizner wbb innocent, whnroupon the  
+mob fell upon him, kicked hitn an
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kershawhogjam_ver03%2Fdata%2Fsn86063778%2F00415620226%2F1909111801%2F0481.jp2/pct:17.015630,21.754188,15.319965,17.225673/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_kershawhogjam_ver03%2Fdata%2Fsn86063778%2F00415620226%2F1909111801%2F0481.jp2/pct:17.015630,21.754188,15.319965,23.312629/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6460,6 +6216,16 @@ Washington avenue and up to Twenty
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+to Elm street and half a block to the,  
+alley.  
+Marks on the ground showed that she,  
+was dragged 75 feet to the spot where  
+she was strangled to death. Her fear-&#x27;  
+fully bruised and lacerated throat andi  
+face shows that she fought desperately.  
+Wife Murderer Hanged.  
+Henry Salzner, a white man and a pho-&gt; 3j  
+tographer by trade, who killed his wife  
 last July with an ax, was taken out of the  
 county jail at 11:40 o’clock by the mob and  
 hanged to a telegraph pole and his body  
@@ -6520,7 +6286,7 @@ basement of the court house, around the
 building through the yard, and out into  
 Washington avenue and up to Twenty
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/sdhi_mango_ver02%2Fdata%2Fsn99062017%2F00332899612%2F1909111801%2F0041.jp2/pct:74.444090,45.534106,15.831471,26.578415/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/sdhi_mango_ver02%2Fdata%2Fsn99062017%2F00332899612%2F1909111801%2F0041.jp2/pct:74.444090,40.632469,15.831471,31.480051/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6533,11 +6299,6 @@ Washington avenue and up to Twenty
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-James, a negro, and Henry Salzner, a  
-white man, were lynched here by an  
-infuriated mob of 5000, and more  
-hangings are to follow as a result of  
-the murder of Anna Pelley last Mon­  
 day. James was killed and burned af  
 ter he had confessed the murder of  
 the shopgirl and implicated another  
@@ -6590,7 +6351,7 @@ which he was strung up, the rope be­
 ing placed over a telegraph pole at  
 Twenty-first and Washington streets
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/tu_ida_ver01%2Fdata%2Fsn89058250%2F00296021234%2F1909111801%2F1010.jp2/pct:4.209236,26.954141,14.384961,32.183436/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/tu_ida_ver01%2Fdata%2Fsn89058250%2F00296021234%2F1909111801%2F1010.jp2/pct:4.209236,29.842574,14.384961,29.295003/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6603,9 +6364,6 @@ Twenty-first and Washington streets
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-house, and when he was taken to Jail,  
-followed the scent to the door of his  
-cell.  
 Salzner&#x27;s crime for which he suf­  
 fered at the hands of the second mob,  
 was a brutal one, according to the  
@@ -6622,16 +6380,9 @@ found at tho home of hl3 mother,
 where he often slept at night.  
 All evidence pointed to Salzner as  
 the slayer and Mrs. Salzner recovered  
-enough to accuse her husband.  
-  
-Cattleman Will Be Hanged.  
-Basin, Wyo., Special: The jury In  
-tho case of Herbert L. Brink, one of  
-the seven cattlemen charged with the  
-  
-hnurder of three sheepmen In tho Ten-
+enough to accuse her husband.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/in_bird_ver02%2Fdata%2Fsn84023963%2F00212470740%2F1909111901%2F0732.jp2/pct:15.218626,65.179449,15.332198,13.643068/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/in_bird_ver02%2Fdata%2Fsn84023963%2F00212470740%2F1909111901%2F0732.jp2/pct:15.672913,66.715831,14.877910,8.665192/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6644,15 +6395,6 @@ hnurder of three sheepmen In tho Ten-
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-There were jeers and defiance for  
-the miiltia from the crowd that wit­  
-nessed the departure.  
-Will (Froggy) James, a negro,  
-confessed murderer of Annie Pelley,  
-was hanged, riddled with bullets and  
-burned after a thousand men had  
-chased Sheriff Davis and the negro  
-for twenty-four hours.  
 Henry Salzner, a white man, and  
 a photographer by trade, who killed  
 his wife last July with an axe, was  
@@ -6668,7 +6410,7 @@ his neck but in his fright he could
 only mumble that his sisters did the  
 killing
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/lu_roulette_ver01%2Fdata%2Fsn87090131%2F00200299747%2F1909111901%2F0513.jp2/pct:55.958274,34.583749,12.818246,12.337986/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/lu_roulette_ver01%2Fdata%2Fsn87090131%2F00200299747%2F1909111901%2F0513.jp2/pct:55.958274,39.506481,12.818246,7.415254/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6691,10 +6433,9 @@ thur Alexander helped him with the
 crime.  
 James was lynced in the most  
 prominent square of the city at  
-Eighth and Commercial streets.  
-Women present were told to pul
+Eighth and Commercial streets
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/lu_roulette_ver01%2Fdata%2Fsn87090131%2F00200299747%2F1909111901%2F0513.jp2/pct:55.993635,47.096211,12.800566,6.343470/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/lu_roulette_ver01%2Fdata%2Fsn87090131%2F00200299747%2F1909111901%2F0513.jp2/pct:55.993635,47.096211,12.800566,5.795115/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6707,6 +6448,7 @@ Women present were told to pul
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+that troops were necessary. The  
 Governor ordered 11 companies of  
 the State Guard to Cairo at once.  
 The mob gave Salzner a chance to  
@@ -6747,7 +6489,7 @@ the mob rushed for the county jail,
 got Salzner and lynched hint.  
 Search for the negro Alexander
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mdu_belair_ver01%2Fdata%2Fsn89060136%2F00279522618%2F1909111901%2F0830.jp2/pct:80.894471,61.527195,15.138944,20.200301/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mdu_belair_ver01%2Fdata%2Fsn89060136%2F00279522618%2F1909111901%2F0830.jp2/pct:80.894471,61.004671,15.138944,20.722825/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6781,15 +6523,6 @@ negro. Arthur Alexander, whom th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-There were Jeers and defiance for ;  
-the militia from the crowd that wit­  
-nessed the departure.  
-Will (Froggy) James, a negro,  
-confessed murderer of Annie Pelley,  
-was hanged, riddled with bullets and  
-burned after a thousand men had  
-chased Sheriff IJavls and the negro  
-for twenty-four hours.  
 Henry Salzner, a white man, and  
 a photographer by trade, who killed  
 his wife last July with an axe, was  
@@ -6805,7 +6538,7 @@ his neck but In his fright he could
 only mumble that his sisters did the  
 killing
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/msar_karakul_ver02%2Fdata%2Fsn87065069%2F00199917614%2F1909111901%2F0174.jp2/pct:48.103933,29.993386,14.115169,12.946429/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/msar_karakul_ver02%2Fdata%2Fsn87065069%2F00199917614%2F1909111901%2F0174.jp2/pct:48.127341,35.102513,13.904494,7.837302/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6967,10 +6700,9 @@ thur Alexander helped him with the
 crime.  
 James was lynced in the most  
 prominent square of the city at  
-Eighth and Commercial streets.  
-Women present were told to pul
+Eighth and Commercial streets
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/lu_charizard_ver01%2Fdata%2Fsn88064491%2F00295876323%2F1909112001%2F0392.jp2/pct:79.222296,47.525439,12.266355,5.966698/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/lu_charizard_ver01%2Fdata%2Fsn88064491%2F00295876323%2F1909112001%2F0392.jp2/pct:79.222296,47.525439,12.266355,5.411656/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -6983,6 +6715,18 @@ Women present were told to pul
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+Women took the lead in all the hor­  
+rible work of the mob. A woman  
+pulled the rope, a woman touched the  
+match to the fire. Women spurred  
+fathers, brothers and sweethearts to  
+deeds of vengeance like the Amazons  
+of history.  
+The lynching was the result of the  
+murder of Miss Annie Peltey, a pretty  
+factory girl. Hloodhounds took up the  
+scent from the gag In the girl&#x27;s  
+mouth and went directly to James&#x27;s  
 house, and when he was taken to Jail,  
 followed tho scent to the door of his  
 cell.  

@@ -1,9 +1,9 @@
 
-# East STL - Transcriptions of newspaper articles of interest.md
+# East_STL_-_Transcriptions_of_newspaper_articles_of_interest
 
-### 93 reprints from 1917-07-07 to 1917-07-26
+### 94 reprints from 1917-07-07 to 1917-07-26
 
-## East STL - Transcriptions of newspaper articles of interest.md
+## East_STL_-_Transcriptions_of_newspaper_articles_of_interest
 
 #### From unknown source
 
@@ -11,83 +11,79 @@
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-terest and details about  
-the news article title newspaper date link and your name  
-transcriber  
+er, date, link), and your name  
+(transcriber).  
   
 Example  
   
-Reference details about the article title author newspaper etc  
+Reference details about the article (title, author, newspaper, etc.).  
   
-G Ward name of transcriber  
+G. Ward \[name of transcriber\]  
   
-Atrocity in Cairo title as it appears  
+Atrocity in Cairo \[title as it appears\]  
   
 Verbatim transcription  
   
+\-\-\--  
   
+**July 18, 1917, &quot;[[Home Grown  
+Barbarism]{.underline}](https://chroniclingamerica.loc.gov/lccn/sn87062015/1917-07-18/ed-1/seq-2/#date1=1916&amp;index=1&amp;rows=20&amp;words=East+Louis+riots+St&amp;searchType=basic&amp;sequence=0&amp;state=&amp;date2=1919&amp;proxtext=East+St.+Louis+Riots&amp;y=0&amp;x=0&amp;dateFilterType=yearRange&amp;page=1)&quot;  
+(Seward Gateway and the Alaska Evening Post)**  
   
-July 18 1917 Home Grown  
-Barbarism underline https chroniclingamerica loc gov lccn sn87062015 1917 07 18 ed 1 seq 2 date1=1916 index=1 rows=20 words=East+Louis+riots+St searchType=basic sequence=0 state= date2=1919 proxtext=East+St +Louis+Riots y=0 x=0 dateFilterType=yearRange page=1  
-Seward Gateway and the Alaska Evening Post  
-  
-J Romero  
+**J. Romero**  
   
 HOME GROWN BARBARISM  
   
-Denial by Samuel Gompers president of the American Federation of Labor  
-that trade unions had any share in the East St Louis riots which was  
+Denial by Samuel Gompers, president of the American Federation of Labor,  
+that trade unions had any share in the East St. Louis riots, which was  
 met by a vehemnt denunciation by Theodore Roosevelt of the murder of  
-helpless negroes precipitated a tumultuous demonstration at a mass  
+helpless negroes, precipitated a tumultuous demonstration at a mass  
 meeting held in Carnegie hall in New York recently in honor of the  
-Russian mission to the United States  
+Russian mission to the United States.  
   
-It was at the close of an adress by Mr Gompers that pers declared that  
+It was at the close of an adress by Mr. Gompers that pers declared that  
 many laboring men are in much the same position as Russians under the  
-old regime and read a the colonel was recognized by Mayor iMitchell  
-Mr Gom telegram he said he had recieved tonight from the president of  
-the Federation of Labor of Illinois This message purported to explain  
-the orgin of the East St Louis riots It asserted that instead of labor  
-unions being responsible for them they resulted from employers enticing  
-negroes from the South to the city to break the back of labor  
+old regime, and read a the colonel was recognized by Mayor iMitchell.  
+Mr. Gom- telegram he said he had recieved tonight from the president of  
+the Federation of Labor of Illinois. This message purported to explain  
+the orgin of the East St. Louis riots. It asserted that instead of labor  
+unions being responsible for them, they resulted from employers enticing  
+negroes from the South to the city &quot;to break the back of labor.&quot;  
   
-There should be no apology for the infamous brutalities committed on  
-the colored people of East St Louis declared Mr Roosevelt in  
-beginning his vigorous denunciation of the riots Justice is not a mere  
-phrase It has to be translated intio action How can we praise Russia  
+&quot;There should be no apology for the infamous brutalities committed on  
+the colored people of East St. Louis,&quot; declared Mr. Roosevelt, in  
+beginning his vigorous denunciation of the riots. &quot;Justice is not a mere  
+phrase. It has to be translated intio action. How can we praise Russia  
 for freeing her people when we must apologize for doing murder to the  
-helpless  
+helpless?  
   
-In the past we have listened to the same excuse from those in authority  
-in Old Russia for the fearful pogroms on the Jews I will do anything  
-for the laboring men except that which is wrong and that I won t do for  
-him or for any one else I can not a snap of my finger for a telegram  
-from the head of labor unions of Illinois Let there be the fullest  
-investigation into these murders  
+&quot;In the past we have listened to the same excuse from those in authority  
+in Old Russia for the fearful pogroms on the Jews. I will do anything  
+for the laboring men except that which is wrong and that I won&#x27;t do for  
+him or for any one else. I can not a snap of my finger for a telegram  
+from the head of labor unions of Illinois. Let there be the fullest  
+investigation into these murders.&quot;  
   
-Mr Roosevelt was interrupted by Mr Gompers who rose from his seat and  
-approached the former president Why don t you accuse after an  
-investigation the labor leader demanded  
+Mr. Roosevelt was interrupted by Mr. Gompers, who rose from his seat and  
+approached the former president. &quot;Why don&#x27;t you accuse after an  
+investigation?&quot; the labor leader demanded.  
   
-With these words he returned to his seat Roosevelt strode over to his  
-char and exclaimed Mr Gompers why don t I accuse afterwards I ll  
-answer now when murder is to be answered  
+With these words he returned to his seat. Roosevelt strode over to his  
+char and exclaimed: &quot;Mr Gompers, why don&#x27;t I accuse afterwards? I&#x27;ll  
+answer now, when murder is to be answered.&quot;  
   
-With that the colonel brought down on Mr Gomper s shoulder his open  
-left hand which he had raised above his head  
+With that the colonel brought down on Mr. Gomper&#x27;s shoulder his open  
+left hand, which he had raised above his head.  
   
 At this juncture many of the men on the platform leaped to their feet  
-and there was a storm of hisses cheers and boos from all parts of the  
-house  
+and there was a storm of hisses, cheers and &quot;boos&quot; from all parts of the  
+house.  
   
-When Mr Roosevelt could make himself heard above the din he went on  
+When Mr. Roosevelt could make himself heard above the din he went on:  
   
-I will go to any extreme to bring justice to the laboring man but when  
-there is murder I will put him down  
-  
-  
-  
-Patrolmen must listen to the public
+&quot;I will go to any extreme to bring justice to the laboring man, but when  
+there is murder I will put him down.&quot;  
+
 </td></tr></table>
 
 ---
@@ -117,10 +113,9 @@ labor leader&#x27;s shoulder. At this
 juncture many of the men on the  
 platform leaped to their feet and  
 &#x27; I prevented further trouble. There  
-: was a storm of hisses and cheers  
-| from all parts of the house
+: was a storm of hisses and cheer
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_goat_ver01%2Fdata%2Fsn96060049%2F00513680120%2F1917070701%2F0164.jp2/pct:43.837754,28.976249,16.965679,21.003276/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_goat_ver01%2Fdata%2Fsn96060049%2F00513680120%2F1917070701%2F0164.jp2/pct:43.837754,28.976249,16.965679,19.840295/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -150,10 +145,9 @@ raised above ills head.
 At this juncture many men on the  
 platform leaped to their feet and  
 separated the two. There were  
-storms of hisses ar.d cheer* from all  
-parts of the hou-e
+storms of hisses ar.d cheer* from al
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_jellymoss_ver01%2Fdata%2Fsn84020657%2F00279527008%2F1917070701%2F0039.jp2/pct:31.247578,70.274734,12.674351,10.572737/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_jellymoss_ver01%2Fdata%2Fsn84020657%2F00279527008%2F1917070701%2F0039.jp2/pct:31.247578,70.274734,12.674351,9.957214/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -387,16 +381,9 @@ tigation into these murders.”
 It was at this point that the inter­  
 ruption came from Mr. Gompers. Mr.  
 Roosevelt already had departed a lit­  
-tle earlier in the evening from the  
-text of his formal speech of welcome  
-to the Russians to refer to the riots.  
-DEPART FROM TEXT  
-“Before I greet the envoys of the  
-new republic,” he had said, “I wish to  
-say a word to you in regard to some­  
-thing that has recently occurred in
+tle earlier in the evening from th
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_bolden_ver01%2Fdata%2Fsn85038485%2F00340583796%2F1917070701%2F0102.jp2/pct:3.276353,46.966195,13.029101,22.323750/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/au_bolden_ver01%2Fdata%2Fsn85038485%2F00340583796%2F1917070701%2F0102.jp2/pct:3.276353,46.966195,13.029101,19.015458/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -490,9 +477,16 @@ Let there be the fullest investigation
 into these murders.&quot;  
 It was at this point that the Inter­  
 ruption came from Mr. Gompers. Mr.  
-Roosevelt already had departed a lit
+Roosevelt already had departed a lit­  
+tle earlier in the evening from the text  
+of his formal speech of welcome to the  
+Russians to refer to the riots.  
+&quot;Before I greet the envoys of the new  
+republic,&quot; he had said, &quot;I wish to say  
+word to you in regard to something  
+that has recently occurred inside ou
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/az_iguana_ver01%2Fdata%2Fsn84020558%2F00202193390%2F1917070701%2F0076.jp2/pct:81.587738,54.618474,12.222441,18.592890/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/az_iguana_ver01%2Fdata%2Fsn84020558%2F00202193390%2F1917070701%2F0076.jp2/pct:81.587738,54.618474,12.261741,21.701621/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -806,21 +800,8 @@ instead of labor unions being respon­
 sible for them they resulted from em­  
 ployers enticing negroes from the  
 south to the city &quot;to break the back of  
-labor.
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/dlc_koozbanian_ver01%2Fdata%2Fsn83045462%2F00280659022%2F1917070701%2F0082.jp2/pct:62.500000,30.603383,12.384969,7.408959/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _Evening star._](https://chroniclingamerica.loc.gov/lccn/sn83045462/1917-07-07/ed-1/seq-6)
-
-#### 1917-07-07 &middot; [Washington, D.C.](http://dbpedia.org/resource/Washington%2C_D.C.)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
+labor.&quot;  
+Ko Apology for Brutalities.  
 &quot;There should be no apology for the  
 infamous brutalities committed on the  
 I colored people of East St. Louis,&quot; de­  
@@ -847,7 +828,7 @@ tion came from Mr. Gompers. Mr.
 Roosevelt already had departed a lit­  
 tle earlier in the evening from th
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/dlc_koozbanian_ver01%2Fdata%2Fsn83045462%2F00280659022%2F1917070701%2F0082.jp2/pct:62.619824,39.048453,12.327454,10.383971/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/dlc_koozbanian_ver01%2Fdata%2Fsn83045462%2F00280659022%2F1917070701%2F0082.jp2/pct:62.500000,30.603383,12.447278,18.829042/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -860,10 +841,6 @@ tle earlier in the evening from th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-TEDDY AND GOMPERS CLASH.  
-  
-Unpleasant Incident at Meeting in  
-Honor of Russian Mission,  
 New York, July 7.— Denial by Sam­  
 uel Gompers, president of the Ameri­  
 can Federation of Labor, that trades  
@@ -908,7 +885,7 @@ on:
 Justice to the laboring man, but when  
 there, is murder, I Will put him down.&quot;
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_letts_ver01%2Fdata%2Fsn85049554%2F00295877054%2F1917070701%2F0370.jp2/pct:42.822111,25.676326,12.726065,21.076200/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iahi_letts_ver01%2Fdata%2Fsn85049554%2F00295877054%2F1917070701%2F0370.jp2/pct:42.822111,27.648866,12.726065,19.103660/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1257,16 +1234,9 @@ into these murders.
 .. It was at this point that the inter­  
 runtion came from Mr. Gompers. Mr.  
   
-Roosevelt already had departed a  
-little earlier in the evening from the  
-text of his formal speech of welcome  
-to the Russians to refer to the riots.  
-&quot;Before I greet the envoys of the  
-new republic.&quot; he had said. &quot;I wish  
-- to say a word to you in regard to  
-something that has recently occurre
+Roosevelt already had departed 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_bender_ver01%2Fdata%2Fsn82016014%2F00295870114%2F1917070701%2F0051.jp2/pct:2.891252,46.833889,11.322514,22.189090/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/khi_bender_ver01%2Fdata%2Fsn82016014%2F00295870114%2F1917070701%2F0051.jp2/pct:2.965865,46.833889,11.229248,19.084371/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1373,14 +1343,7 @@ there be the fullest investigation into !
 these murders.&quot;  
 It was at this point that the inter- j  
 ruption came from Mr- Gompers. Mr. j  
-Roosevelt already had departed a little  
-earlier in the evening from the text of &#x27;  
-liis formal speech of welcome to the  
-Russians to refer to the riots.  
-&quot;Before I greet the envoys &lt;&gt;f the  
-new republic,&quot; he said. &quot;I wish to say  
-a word to you in regard to something  
-that lias recently occured inside ou
+Roosevelt already had departed a littl
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/me_forestcity_ver02%2Fdata%2Fsn82014248%2F00513683121%2F1917070701%2F0075.jp2/pct:3.217503,9.254328,27.252252,43.265646/!600,600/0/default.jpg"/>
 </td>
@@ -1487,10 +1450,21 @@ vehement denunciation by Theodore
 Roosexclt of the murder of helpless  
 negroes, precipitated a tumultous  
 demonstration at a mass meeting held  
-in Carnegie hall here tonight in honor  
-o! the Russian mission to the United  
-States.  
-Gomporo Interrupts Colonel.  
+in Carnegie hall here tonight in hono
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0750.jp2/pct:29.996285,34.913295,12.462853,5.390173/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Daily Missoulian._](https://chroniclingamerica.loc.gov/lccn/sn83025316/1917-07-07/ed-1/seq-1)
+
+#### 1917-07-07 &middot; [Missoula, Mont.](http://dbpedia.org/resource/Missoula%2C_Montana)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 Mr. Roosevelt wus interrupted by  
 Mr. Goinpers, who rose from his seat  
 ard approached the former president.*  
@@ -1513,7 +1487,7 @@ feet and there wus a storm of hisses,
 cheers and &quot;boos&quot; from all parts of  
 
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0750.jp2/pct:29.754829,34.913295,13.001486,20.520231/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0750.jp2/pct:29.754829,42.109827,13.001486,13.323699/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1533,10 +1507,9 @@ make himself heard itbove the din, lie
 went on:  
 &quot;1 will go to any extreme to bring  
 justice to the laboring man, but when  
-there is murder, I will put him du^rn.&quot;  
-When the former president li ti
+there is murder, I will put him du^rn.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0752.jp2/pct:22.248892,13.583815,12.463072,7.008671/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0752.jp2/pct:22.248892,13.583815,12.463072,6.387283/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1586,14 +1559,9 @@ one else. Let there be the fullest in­
 vestigation into th«»o murders.&quot;  
 It was at, this point, that the inter­  
 ruption came from Mr. Gompors. Mr.  
-Roosevelt, already had departed a little  
-earlier in the evening from his text of  
-his formal speech of welcome to the  
-Russians lo refer to the Hots.  
-&quot;Before I greet the envoys «if tile  
-new republic,&quot; he had said, &quot;I wish t
+Roosevelt, already had departed a littl
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0752.jp2/pct:22.285820,28.179191,12.536928,21.965318/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mthi_indigobunting_ver02%2Fdata%2Fsn83025316%2F00295860212%2F1917070701%2F0752.jp2/pct:22.285820,28.179191,12.500000,19.436416/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1624,9 +1592,11 @@ It asserted that instead of )abo9
 unions being responsible for them  
 they resulted from employers em­  
 ploying the negroes from the south  
-to &quot;break the back of labor.
+to &quot;break the back of labor.&quot;  
+  
+AMERICANS FREE
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_lenarian_ver01%2Fdata%2Fsn85042224%2F00383346253%2F1917070701%2F0650.jp2/pct:62.621937,37.697560,11.073043,7.653427/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ndhi_lenarian_ver01%2Fdata%2Fsn85042224%2F00383346253%2F1917070701%2F0650.jp2/pct:62.621937,37.697560,11.073043,9.067934/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1845,7 +1815,11 @@ his chair and exclaimed: I make rejoinder, but was pushed back
   
 &#x27;Mr. Gompers, why don&#x27;t I accuse into his seat by those who sat near  
   
-afterwards? I&#x27;ll answer now, when him, while Mayor Mitchel, who pre-
+afterwards? I&#x27;ll answer now, when him, while Mayor Mitchel, who pre-  
+  
+murder Is to be answered.&quot; .sided. iounded vigorously with his  
+  
+With that the colonel brought gavel in an effort to restore order.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nvln_beatty_ver02%2Fdata%2Fsn86076142%2F00415627038%2F1917070701%2F0638.jp2/pct:28.103410,84.027135,39.603298,12.827629/!600,600/0/default.jpg"/>
 </td>
@@ -1874,7 +1848,21 @@ from all parts of the house. When &#x27;selves sitting side by U1e.
   
 Mr. Roosevelt could make himself It was at the close of an addrest  
 heard above the din he went on: jby Mr. Gompers that the colonel waa  
-&quot;I will go to any extreme to bring &#x27; recocnited by Mayor Mitchel. Mr.  
+&quot;I will go to any extreme to bring &#x27; recocnited by Mayor Mitchel. Mr
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nvln_beatty_ver02%2Fdata%2Fsn86076142%2F00415627038%2F1917070701%2F0638.jp2/pct:41.497660,87.634906,26.275908,6.090040/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _Tonopah daily bonanza._](https://chroniclingamerica.loc.gov/lccn/sn86076142/1917-07-07/ed-1/seq-1)
+
+#### 1917-07-07 &middot; [Tonopah, Nev.](http://dbpedia.org/resource/Tonopah%2C_Nevada)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
 Justice to the laboring man, but Gompers had declared that many  
   
 when there is murder 1 will put him laboring men are In much the same  
@@ -1882,7 +1870,7 @@ down.&quot; position as Russians under the old
   
 When the former ereeident had regime, read a telegram he said h
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nvln_beatty_ver02%2Fdata%2Fsn86076142%2F00415627038%2F1917070701%2F0638.jp2/pct:41.497660,87.634906,26.365055,8.479803/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/nvln_beatty_ver02%2Fdata%2Fsn86076142%2F00415627038%2F1917070701%2F0638.jp2/pct:41.586806,93.755782,26.275908,2.358927/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2069,10 +2057,6 @@ Roosevelt hud departed a little earlie
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-AND GOMPERS  
-  
-CLASH AT MEETING  
-  
 New York, July 7. Denial by Samuel  
 Gompers, president of the American  
   
@@ -2138,7 +2122,7 @@ Justice to the luUirlng man, but when
   
 there is murder I will put hhn down.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_geronimo_ver01%2Fdata%2Fsn85042303%2F00200296837%2F1917070701%2F0368.jp2/pct:43.922018,70.356527,12.366208,20.859689/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/okhi_geronimo_ver01%2Fdata%2Fsn85042303%2F00200296837%2F1917070701%2F0368.jp2/pct:43.922018,72.211041,12.366208,19.005175/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2565,10 +2549,6 @@ tle earlier in the evening from ? th
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-T. R. AND GOMPERS CLASH  
-  
-And Former Tapped the Labor Leader on  
-the Shoulder.  
 New York. July 7. Denial by Samuel  
 Gompers, preident of the American Fed­  
 eration of Labor, that trade unions had  
@@ -2581,7 +2561,7 @@ meeting held in Carnegie hall here last
 night in honor of the Russian mission  
 to the Cnite-l State.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vtu_eggplant_ver01%2Fdata%2Fsn91066782%2F00415629837%2F1917070701%2F0034.jp2/pct:43.618033,85.517337,12.630778,7.408439/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/vtu_eggplant_ver01%2Fdata%2Fsn91066782%2F00415629837%2F1917070701%2F0034.jp2/pct:43.618033,87.606183,12.592733,5.319593/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2743,16 +2723,9 @@ ed.
 With these words he returned to  
 his seat. Roosevelt strode over to his  
 chair and exclaimed:  
-“Mr. Gompers, why don’t I accuse  
-(Continued on Page Five)  
-A STOCKMAN  
-WAS KILLED  
-FELL AS HE TRIED TO BOARD  
-TRAIN WITH SHEEP AND  
-CRUSHED TO DEATH.  
-Michel Albuget of Twin Falls, Idaho
+“Mr. Gompers, why don’t I accus
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wyu_dickinson_ver03%2Fdata%2Fsn92066979%2F00513687679%2F1917070701%2F0459.jp2/pct:20.722095,52.559822,14.448258,23.789649/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wyu_dickinson_ver03%2Fdata%2Fsn92066979%2F00513687679%2F1917070701%2F0459.jp2/pct:20.722095,52.559822,14.448258,14.106845/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2765,16 +2738,6 @@ Michel Albuget of Twin Falls, Idaho
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-man and the printed records of the  
-former conventions are in that tongue.  
-The meeting is proving of in­  
-terest to every member of the con­  
-’ gregation here and the visiting mem­  
-bers are being cordially entertained.  
-They are a very intelligent, fine-look­  
-ing body of men. G. Winter of Wind­  
-sor. Colo., is a lay delegate.  
-ROOSEVELT  
 IS WRATHY  
 (Continued from Page One)  
 afterwards? i’ll answer now when mur­  
@@ -2794,7 +2757,7 @@ the din, he went on:
 , justice to the laboring man. but when  
 .1 there is murder I will put him down.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wyu_dickinson_ver03%2Fdata%2Fsn92066979%2F00513687679%2F1917070701%2F0463.jp2/pct:35.213144,12.609465,14.862979,21.944289/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wyu_dickinson_ver03%2Fdata%2Fsn92066979%2F00513687679%2F1917070701%2F0463.jp2/pct:35.213144,20.751817,14.862979,13.801938/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -2856,11 +2819,9 @@ or for anyone else. I care not a snap |
 of my finger for a telegram from the i  
 head of the labor unions of Illinois. (  
 Let there be the fullest investigation  
-j into these murders.”  
-Gompers’ Side.  
-“I was very much surprised an
+j into these murders.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wyu_dickinson_ver03%2Fdata%2Fsn92066979%2F00513687679%2F1917070701%2F0463.jp2/pct:35.213144,60.718278,15.110378,8.361282/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/wyu_dickinson_ver03%2Fdata%2Fsn92066979%2F00513687679%2F1917070701%2F0463.jp2/pct:35.213144,60.718278,15.110378,7.173467/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3045,10 +3006,9 @@ Moulder. At this juncture many
 »nen who were on the platform leap­  
 ed to their feet and seperated the  
 combatants amid a storm of hisses  
-and cheers from all parts &#x27;of the  
-houte. Order was finally restore
+and cheers from all parts &#x27;of th
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_dallsheep_ver02%2Fdata%2Fsn82014189%2F00279526041%2F1917070901%2F0327.jp2/pct:6.122891,34.173183,29.042262,12.298484/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_dallsheep_ver02%2Fdata%2Fsn82014189%2F00279526041%2F1917070901%2F0327.jp2/pct:6.122891,34.173183,28.998990,12.298484/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3112,20 +3072,6 @@ there is murder I will put him down.
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-  
-  
-tacked tho laboring men for their al  
-  
-leged participation in the St. Liuin  
-  
-riots. Gompers warmly defended e  
-laboring men. Tho Colonel sta :d  
-  
-across the platform and facedGouip-ere.  
-  
-They were In a near belligerent at-  
-  
-iludfl when Mayor Mitchel stepped in  
   
 to the breach and raited on the next  
   
@@ -3208,6 +3154,7 @@ Mr. Roosevelt was Interruptod b
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
+Mr. Compels.  
 &quot;Why don&#x27;t you accuse after an In­  
 vestigation?&quot; the labor leader de­  
 manded.  
@@ -3237,7 +3184,7 @@ bring justice to the laboring man, but
 when there is murder I will put him  
 down.&quot;
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/sdhi_hawaii_ver01%2Fdata%2Fsn99062034%2F00279523131%2F1917070901%2F0846.jp2/pct:19.449656,56.824132,12.166258,13.859258/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/sdhi_hawaii_ver01%2Fdata%2Fsn99062034%2F00279523131%2F1917070901%2F0846.jp2/pct:19.449656,56.238034,12.166258,14.445356/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3368,7 +3315,7 @@ Roosevelt of the murder of helpless
 negroes, precipitated a tumultuous de­  
 monstration at a mass meeting held  
 in Carnegie hall here in honor of -the  
-Russian mission to the United States
+Russian mission to the United State
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_fennel_ver02%2Fdata%2Fsn84026488%2F00279558777%2F1917071101%2F0250.jp2/pct:36.418469,89.255598,13.773918,6.255452/!600,600/0/default.jpg"/>
 </td>
@@ -3666,8 +3613,6 @@ his chair and exclaimed:
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-  
-FRANK E.SHULTS  
 f  
 Music House  
   
@@ -3691,7 +3636,7 @@ justice to the laboring man, but when
 there is murder I will put him  
 dowm.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/whi_lethifold_ver01%2Fdata%2Fsn86086068%2F00414214940%2F1917071201%2F0238.jp2/pct:39.398580,9.532124,28.785558,84.156239/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/whi_lethifold_ver01%2Fdata%2Fsn86086068%2F00414214940%2F1917071201%2F0238.jp2/pct:42.377837,9.532124,25.806302,84.156239/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -3951,7 +3896,7 @@ United States.
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
- in his hand the colonel  
+  
 departed from his prepared text and  
 brought up the East St. Louis riots.  
 Samuel Gompers, President of the  
@@ -3993,11 +3938,9 @@ the helpless t
   
 justice to the laboring man, but when  
   
-there is murder I will put him down.&quot;  
-  
-&quot;In the past we have listened to the
+there is murder I will put him down.&quot;
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iune_charlie_ver01%2Fdata%2Fsn84024055%2F00280761072%2F1917071401%2F0773.jp2/pct:30.633677,74.613340,14.862941,20.251329/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/iune_charlie_ver01%2Fdata%2Fsn84024055%2F00280761072%2F1917071401%2F0773.jp2/pct:30.633677,75.277912,14.862941,18.885935/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4037,14 +3980,13 @@ into these murders.
 <table style="width: 100%;"><tr><td style="width: 50%">
 
   
-Statesville Landmark.  
 &#x27;&quot;At this juncture the colonel  
 brought down on Mr. Gonipers&#x27;  
 shoulders his open left hand, which  
 he had raised above his head,&quot; is a  
 sentence from the account of the de
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_deer_ver01%2Fdata%2Fsn91068423%2F00416156451%2F1917071401%2F0048.jp2/pct:31.737262,27.620364,12.492327,2.994702/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ncu_deer_ver01%2Fdata%2Fsn91068423%2F00416156451%2F1917071401%2F0048.jp2/pct:31.737262,28.242340,12.492327,2.372725/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4138,11 +4080,9 @@ cheers and “boos” from all parts of the house.
 When Mr. Roosevelt could make himself heard above  
 the din he went on:  
 “I will go to any extreme to bring justice to the labor­  
-ing man, but when there is murder I will put him down.”  
-  
-“HEY, GEN’RAL, SEND SOME CHOCOLATES TO THE FRONT!”
+ing man, but when there is murder I will put him down.”
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_harborseal_ver04%2Fdata%2Fsn87062015%2F00279526065%2F1917071801%2F0398.jp2/pct:6.109955,7.587751,58.777193,87.937422/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/ak_harborseal_ver04%2Fdata%2Fsn87062015%2F00279526065%2F1917071801%2F0398.jp2/pct:6.109955,45.910290,29.562059,49.614882/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
