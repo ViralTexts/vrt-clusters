@@ -1,7 +1,7 @@
 
 # East_St._Louis_-_The_Appeal_August_04,_1917
 
-### 41 reprints from 1881-06-18 to 1920-06-17
+### 45 reprints from 1881-06-18 to 1920-06-17
 
 ## East_St._Louis_-_The_Appeal_August_04,_1917
 
@@ -1016,6 +1016,188 @@ first duty of ordered society
 
 ---
 
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
+
+#### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+o his na-achieve  
+WARNS AGAINST RACIAL HATRED.  
+It is so unusual for a Christian  
+minister to preach against racial hat­  
+red that THE APPEAL is pleased to  
+note that one minister has the cour­  
+age of his convictions.  
+,In his sermon last Sunday, Rev. H.  
+E. Peabody, pastor of the South Con­  
+gregational Church, in Chicago, sai
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:5.509458,67.891633,14.966988,27.393221/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
+
+#### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+ntly about to  
+its final success.  
+&quot;In Germany and Austria the rumb-  
+even above the roar of the cannon.  
+The abolition of the three class system  
+in Prussia the rearrangement of the  
+Reichstag districts, which have been  
+unchanged since 1869 the grant of  
+broader suffrage in Austria, are con­  
+cessions which the ruling class must  
+make to the people.  
+&quot;It is not possible to raise the flag  
+of democracy, and organize a great  
+REFUSES TO BE JIMCROW BISHOP.  
+Rev. James S. Russell of Lawrenceville, Va., Recently Appointed Suffragan,  
+or Jim Crow Bishop, for Several of the Southern  
+States, Has Declined the Honor  
+that racial hatred within the United  
+States is more dangerous than all Ger­  
+mans outside this country.  
+Dr. Peabody likened the East St  
+Louis massacre to the &quot;atrocities of  
+the unspeakable Turk in Armenia.&quot;  
+&quot;The country&#x27;s perils are not all on  
+the sea and&quot; beyond,&quot; said Dr. Pea­  
+body. &quot;Think of the moral earthquake  
+and volcano that has burst in the  
+midst of the land, in our own state,  
+since last we met.  
+&quot;Who would have believed that a  
+massacre that reminds one of St  
+Bartholomew&#x27;s night and of the atroci  
+ties of the unspeakable Turk in Ar­  
+menia, could occur among our own  
+fellow-citizens in East St. Louis?  
+&quot;But, beware! The peril is nearer  
+than that. The mutterings of the vol  
+cano are felt in Chicago. The single  
+explosion is not the most significant  
+thing. The race prejudice, contempt  
+and hatred, workingworking be­  
+neaththese are the hell belowand  
+they find some lodgment in all ourthe  
+hearts God help us.  
+&quot;There is far more danger to the  
+republic from race hatred within our  
+borders than from all the Germans  
+put together.  
+&quot;Christian citizens of Chicago, think  
+this thing through. Try to make up  
+your mind beforehand what you will  
+do and say when the earthquake and  
+the volcano shall be around you. Our  
+country is in dire need of clear heads  
+and stout heartsChristian hearts,  
+both within and withou
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:18.170057,25.999741,24.589579,49.403720/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
+
+#### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+vancing the line of democracy in every to help Russia build a republic. Per  
+country In the world, whether on one haps in the year, to oo  
+side of the contest or the other. If Russian republic has been built, some
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:18.143291,76.142329,24.571734,1.626807/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-21/ed-1/seq-2)
+
+#### 1917-07-21 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+be sweeter than the applause of the  
+world, the countenances of relatives or  
+the hearts of friends.Charles Sumner.  
+hearts God help us.  
+&quot;There is far more danger to the  
+republic from race hatred within our  
+borders than from all the Germans  
+put together.  
+&quot;Christian citizens of Chicago, think  
+this thing through. Try to make up  
+your mind beforehand what you will  
+do and say when the earthquake and  
+the volcano shall be around you. Our  
+country is in dire need of clear heads  
+and stout heartsChristian hearts,  
+both within and without.
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:22.739404,29.559079,22.562989,63.624057/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-21/ed-1/seq-2)
+
+#### 1917-07-21 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+use  
+the name and seal of democracy as a  
+means of obtaining political or eco­  
+nomic privilege, they are doomed to  
+disappointment. They are unchaining  
+democratic forces that cannot be  
+quieted without full recognition of  
+their position in&#x27; society and the state.  
+In the long run, both civil liberty and  
+industrial democracy will be the gain­  
+ers in every country in the world.  
+America will be no exception.&quot;  
+War is a horrible thing viewed from  
+any angle, but good will come out of  
+it and when it is over many of the old  
+prejudices and distinctions which have  
+cursed the world will have been  
+burned away.  
+Charles Edward Russell, a member  
+of the American Commission to Rus­  
+sia, appeals to the American people  
+to help Russia build a republic. Per­  
+haps in the years to come when the  
+Russian republic has been built, some  
+The National Evangelistic Alliance  
+of America has appealed to President  
+Wilson that flags on public buildings  
+be at half-mast on Sunday, July 29th,  
+in memory of persons who lost their  
+lives in the East St. Louis riots
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:32.985027,9.237414,24.652825,68.861600/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
 ## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-28/ed-1/seq-2)
 
 #### 1917-07-28 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
@@ -1169,42 +1351,9 @@ East Saint Louis massacre was an
 editorial published in the Christian  
 Register of Boston, Mass. The Regis­  
 ter is the leading Unitarian paper pub­  
-lished in the United States and per-  
-elties and brutalities of foreign con­  
-quest. No tribes of any name, or time  
-have ever outdone the white men and  
-women who burned colored men,  
-women and children the other day in  
-this American city. Nothing more re-  
-a SLttanp
+lished in the United States and per-
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:4.797398,24.280921,24.935628,44.480276/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-04/ed-1/seq-2)
-
-#### 1917-08-04 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
-the hearts of friends.Charles Sumner.  
-haps that accounts for the article  
-The Unitarian church is one of the Louis massacre to the &quot;atrocities of  
-few Christian denominations in Amer- the unspeakable Turk in Armenia.&quot;  
-ica in which there is no color line  
-The orthodox Christian sects in Amer­  
-ica are so filled with prejudice that  
-the ruthless massacre of helpless men,  
-women and children fails to bring out  
-a protest.  
-The article from the Christian Reg  
-ties of war to the ferocities of peace, explosion is not the most significan
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:17.382663,20.508811,24.786556,30.847910/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:4.797398,24.280921,24.935628,33.525522/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -1946,32 +2095,6 @@ Avenue, Now York
 
 ---
 
-## [From _The Nashville globe._](https://chroniclingamerica.loc.gov/lccn/sn86064259/1917-08-10/ed-1/seq-1)
-
-#### 1917-08-10 &middot; [Nashville, Tenn.](http://dbpedia.org/resource/Nashville%2C_Tennessee)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
-  
-The riot at East St. Louis is one!  
-of the worst blots on the good name  
-of an American community in our  
-whole history. Illinois must bow  
-her head in shame before this dis­  
-grace. We have no excuse. There  
-can be no excuse for such a break­  
-down of the most primitive safe­  
-guards of civil government, for such  
-betrayal of the first duty of ordered  
-society
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/tu_frank_ver01%2Fdata%2Fsn86064259%2F0029602059A%2F1917081001%2F0255.jp2/pct:55.203268,60.164835,11.943202,5.480769/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
 ## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-11/ed-1/seq-2)
 
 #### 1917-08-11 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
@@ -2094,7 +2217,21 @@ Steward has been in the harness for
 many years as an editor and also as  
 a church worker and is a living refuta­  
 tion of the adage that &quot;the good die  
-young.
+young.&quot;  
+According to statistics prepared  
+by Frederick L. Hoffman for &quot;Spec­  
+tator,&quot; Memphis, Tenn., has the un­  
+enviable distinction of being the mur­  
+der metropolis of the United States.  
+More homicides were committed in  
+Memphis than in any other city in  
+proportion to the population.  
+The National Evangelistic Alliance  
+of America has appealed to President  
+Wilson that flags on public buildings  
+be at half-mast on Sunday, July 29th,  
+in memory of persons who lost their  
+lives in the East St. Louis riots
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:20.585714,5.300594,34.835973,51.885414/!600,600/0/default.jpg"/>
 </td>
@@ -2776,6 +2913,89 @@ and stout heartsChristian hearts,
 both within and without.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090101%2F0619.jp2/pct:18.267574,2.202329,22.331066,71.535143/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-09-08/ed-1/seq-2)
+
+#### 1917-09-08 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+PTEMBER 8, 1917  
+&quot;Any prejudice whatever will  
+be insurmountable if those who  
+do not share in it themselves  
+truckle to it and flatter it and  
+accept it as a law of nature.&quot;  
+John Stuart Mill.  
+j&amp;or**i  
+NATIONAL RACE CONGRESS.  
+Elsewhere on this page will be found  
+an article from Boston in regard to  
+the coming Race Congress which un­  
+questionably is a needed movement  
+and it is hoped that the people of  
+the Twin Cities will get together and  
+arrange to send representatives to the  
+same There is very little time to  
+work, so let&#x27;s get at it NOW. Let us  
+hear from our citizens in regard to  
+the matter at once.  
+WARNS AGAINST RACIAL HATRED.  
+It is so unusual for a Christian  
+minister to preach against racial hat-,  
+red that THE APPEAL is pleased to  
+note that one minister has the cour­  
+age of his convictions.  
+In his sermon last Sunday, Rev. H.  
+E. Peahody, pastor of the South Con­  
+gregational Church, in Chicago, said  
+that racial hatred within the United  
+States is more dangerous than all Ger­  
+mans outside this country.  
+Dr. Peabody likened the East St  
+Louis massacre to the &quot;atrocities of  
+the unspeakable Turk in Armenia.&quot;  
+&quot;The country&#x27;s perils are not all on  
+the sear and beyond,&quot; said Dr. Pea­  
+body. &quot;Think of the moral earthquake  
+and volcano that has burst in the  
+midst of the land, in our own state,  
+since last we met.  
+&quot;Who would have believed that a  
+massacre that reminds one of St.  
+Bartholomew&#x27;s night and of the atroci­  
+ties of the unspeakable Turk in Ar­  
+menia, could occur among our own  
+fellow-citizens in East St. Louis?  
+&quot;But, beware! The peril is nearer  
+than that. The mutterings of the vol­  
+cano are felt in Chicago. The single  
+explosion is not the most significant  
+thing. The race prejudice, contempt  
+and hatred, workingworking be­  
+neaththese are the hell belowand  
+they find some lodgment in all our  
+hearts God help us.  
+&quot;There is far more danger to the  
+republic from race hatred within our  
+borders than from all the Germans  
+put together. i  
+&quot;Christian citizens of Chicago, think  
+MjiiJ^&amp; ?L*r i#b- *&amp; 3k* iJ  
+S  
+this thing through. Try to make up  
+your mind beforehand what you will  
+do and say when the earthquake and  
+the volcano shall be around you. Our  
+country is in dire need of clear heads  
+and stout heartsChristian hearts,  
+both within and without.
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:4.590443,5.417725,25.715437,91.173406/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

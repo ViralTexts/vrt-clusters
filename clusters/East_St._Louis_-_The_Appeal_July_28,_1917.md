@@ -1,7 +1,7 @@
 
 # East_St._Louis_-_The_Appeal_July_28,_1917
 
-### 121 reprints from 1906-10-11 to 1917-09-08
+### 118 reprints from 1906-10-11 to 1917-08-25
 
 ## East_St._Louis_-_The_Appeal_July_28,_1917
 
@@ -49,28 +49,20 @@ and brutalities of foreign con- quest. No tribes of any name or time
 have ever outdone the white men and women who burned colored men, women  
 and children the other day in this American eity. Nothing more re-  
 volting was ever charged against Ne- groes than was done by these white  
-people. The organization of the man- hood of the nation for the  
-protection of human life and liberty on the seas and for the deliverance  
-of democracy in the world will be needed at home after its task abroad  
-is done. Whi our fellow-creatures in the United States are hunted and  
-tortured as if they were wild beasts, government can scarcely be called  
-democratic. So long as colored people are proscribed, dis- criminated  
-against, segregated and despised, ill-will and antipathy will furnish  
-fertilizers of hatred and mur- der.  
-  
-------------------------  
-  
-**WARNS AGAINST RACIAL HATRED.**  
-  
-It is so unusual for a Christian minister to preach against racial hat-  
-red that THE APPEAL is pleased to note that one minister has the cour-  
-age of his convictions.  
-  
-In his sermon last Sunday, Rev. H. E. Peabody, pastor of the South Con-  
-gregational Church, in Chicago, said that racial hatred within the  
-United States is more dangerous than all Ger- mans outside this country.  
-  
-Dr. Peabody likened the East St. Louis massacre to the \&quot;atrocities of  
+people. The organization of the ma
+</td></tr></table>
+
+---
+
+## East_St._Louis_-_The_Appeal_July_28,_1917
+
+#### From unknown source
+
+#### None
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+ of  
 the unspeakable Turk in Armenia.\&quot;  
   
 \&quot;The country\&#x27;s perils are not all on the sea and beyond,\&quot; said Dr.  
@@ -4217,57 +4209,9 @@ American, should feel that he is. anbeen
 American and should be ready to sacri­  
 fice all of his possessions and even  
 his life to,defend the United States.  
-In return for his loyalty to his na-achieve  
-WARNS AGAINST RACIAL HATRED.  
-It is so unusual for a Christian  
-minister to preach against racial hat­  
-red that THE APPEAL is pleased to  
-note that one minister has the cour­  
-age of his convictions.  
-,In his sermon last Sunday, Rev. H.  
-E. Peabody, pastor of the South Con­  
-gregational Church, in Chicago, said  
-V. 1  
-QM  
-&#x27;&amp;&quot;  
-tive land, THE APPEAL believes that  
-every American has the right to ex- lings of democracy are being heard,  
-pect every right and privilege ac­  
-corded to every other American. No  
-land is a democracy in which there  
-are two classes of citizens.  
-These are the days that we should  
-feel patriotic. One hundred and forty­  
-one years ago the United States shook  
-off the bonds of Great Britain and be­  
-came independent.  
-The Declaration of Independence  
-states that &quot;all men are created equal  
-and endowed by their creator with cer­  
-tain inalienable rights among which  
-are life, liberty and the pursuit of  
-happiness. After one hundred and  
-forty-one years this ideal has not been  
-realized and our much vaunted de­  
-mocracy is largely a sham, but some  
-progress has been made.  
-We are now at war and it is claimed  
-that we are fighting for world-wide  
-democracy, and in spite of the fact  
-that many forces have been at work  
-in recent years to retard the growth  
-of democracy, THE APPEAL believes  
-that the end of the war will find the  
-United States further advanced in true  
-democracy than may appear possible  
-at the present time, and in spite of it­  
-self.  
-Not only the United States but in  
-the whole world we are about to enter  
-an era- in which the basic principle  
-will be human brotherhood
+In return for his loyalty to his na-achieve
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:4.358494,38.087368,25.834226,59.125672/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:5.821734,38.087368,14.654711,30.326009/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -4279,79 +4223,7 @@ will be human brotherhood
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ntly about to  
-its final success.  
-&quot;In Germany and Austria the rumb-  
-even above the roar of the cannon.  
-The abolition of the three class system  
-in Prussia the rearrangement of the  
-Reichstag districts, which have been  
-unchanged since 1869 the grant of  
-broader suffrage in Austria, are con­  
-cessions which the ruling class must  
-make to the people.  
-&quot;It is not possible to raise the flag  
-of democracy, and organize a great  
-REFUSES TO BE JIMCROW BISHOP.  
-Rev. James S. Russell of Lawrenceville, Va., Recently Appointed Suffragan,  
-or Jim Crow Bishop, for Several of the Southern  
-States, Has Declined the Honor  
-that racial hatred within the United  
-States is more dangerous than all Ger­  
-mans outside this country.  
-Dr. Peabody likened the East St  
-Louis massacre to the &quot;atrocities of  
-the unspeakable Turk in Armenia.&quot;  
-&quot;The country&#x27;s perils are not all on  
-the sea and&quot; beyond,&quot; said Dr. Pea­  
-body. &quot;Think of the moral earthquake  
-and volcano that has burst in the  
-midst of the land, in our own state,  
-since last we met.  
-&quot;Who would have believed that a  
-massacre that reminds one of St  
-Bartholomew&#x27;s night and of the atroci  
-ties of the unspeakable Turk in Ar­  
-menia, could occur among our own  
-fellow-citizens in East St. Louis?  
-&quot;But, beware! The peril is nearer  
-than that. The mutterings of the vol  
-cano are felt in Chicago. The single  
-explosion is not the most significant  
-thing. The race prejudice, contempt  
-and hatred, workingworking be­  
-neaththese are the hell belowand  
-they find some lodgment in all ourthe  
-hearts God help us.  
-&quot;There is far more danger to the  
-republic from race hatred within our  
-borders than from all the Germans  
-put together.  
-&quot;Christian citizens of Chicago, think  
-this thing through. Try to make up  
-your mind beforehand what you will  
-do and say when the earthquake and  
-the volcano shall be around you. Our  
-country is in dire need of clear heads  
-and stout heartsChristian hearts,  
-both within and withou
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:18.170057,25.999741,24.589579,49.403720/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
-
-#### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
-vancing the line of democracy in every to help Russia build a republic. Per  
-country In the world, whether on one haps in the year, to oo  
-side of the contest or the other. If Russian republic has been built, some  
+n built, some  
 Charles Edward Russell, a member  
 of the American Commission to Rus-i6*01  
 &quot;*%&amp;  
@@ -4365,80 +4237,7 @@ be at half-mast on Sunday, July 29th,
 in memory of persons who lost their  
 lives in the East St. Louis riots
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:18.143291,6.290103,36.951285,87.439238/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-21/ed-1/seq-2)
-
-#### 1917-07-21 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
-be sweeter than the applause of the  
-world, the countenances of relatives or  
-the hearts of friends.Charles Sumner.  
-hearts God help us.  
-&quot;There is far more danger to the  
-republic from race hatred within our  
-borders than from all the Germans  
-put together.  
-&quot;Christian citizens of Chicago, think  
-this thing through. Try to make up  
-your mind beforehand what you will  
-do and say when the earthquake and  
-the volcano shall be around you. Our  
-country is in dire need of clear heads  
-and stout heartsChristian hearts,  
-both within and without.
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:22.739404,29.559079,22.562989,63.624057/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-21/ed-1/seq-2)
-
-#### 1917-07-21 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-use  
-the name and seal of democracy as a  
-means of obtaining political or eco­  
-nomic privilege, they are doomed to  
-disappointment. They are unchaining  
-democratic forces that cannot be  
-quieted without full recognition of  
-their position in&#x27; society and the state.  
-In the long run, both civil liberty and  
-industrial democracy will be the gain­  
-ers in every country in the world.  
-America will be no exception.&quot;  
-War is a horrible thing viewed from  
-any angle, but good will come out of  
-it and when it is over many of the old  
-prejudices and distinctions which have  
-cursed the world will have been  
-burned away.  
-Charles Edward Russell, a member  
-of the American Commission to Rus­  
-sia, appeals to the American people  
-to help Russia build a republic. Per­  
-haps in the years to come when the  
-Russian republic has been built, some  
-The National Evangelistic Alliance  
-of America has appealed to President  
-Wilson that flags on public buildings  
-be at half-mast on Sunday, July 29th,  
-in memory of persons who lost their  
-lives in the East St. Louis riots
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917072101%2F0594.jp2/pct:32.985027,9.237414,24.652825,68.861600/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:30.670057,6.290103,24.424518,87.439238/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
@@ -5299,89 +5098,6 @@ and stout heartsChristian hearts,
 both within and without.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917082501%2F0614.jp2/pct:19.185127,39.735594,14.671238,19.629052/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-09-08/ed-1/seq-2)
-
-#### 1917-09-08 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-PTEMBER 8, 1917  
-&quot;Any prejudice whatever will  
-be insurmountable if those who  
-do not share in it themselves  
-truckle to it and flatter it and  
-accept it as a law of nature.&quot;  
-John Stuart Mill.  
-j&amp;or**i  
-NATIONAL RACE CONGRESS.  
-Elsewhere on this page will be found  
-an article from Boston in regard to  
-the coming Race Congress which un­  
-questionably is a needed movement  
-and it is hoped that the people of  
-the Twin Cities will get together and  
-arrange to send representatives to the  
-same There is very little time to  
-work, so let&#x27;s get at it NOW. Let us  
-hear from our citizens in regard to  
-the matter at once.  
-WARNS AGAINST RACIAL HATRED.  
-It is so unusual for a Christian  
-minister to preach against racial hat-,  
-red that THE APPEAL is pleased to  
-note that one minister has the cour­  
-age of his convictions.  
-In his sermon last Sunday, Rev. H.  
-E. Peahody, pastor of the South Con­  
-gregational Church, in Chicago, said  
-that racial hatred within the United  
-States is more dangerous than all Ger­  
-mans outside this country.  
-Dr. Peabody likened the East St  
-Louis massacre to the &quot;atrocities of  
-the unspeakable Turk in Armenia.&quot;  
-&quot;The country&#x27;s perils are not all on  
-the sear and beyond,&quot; said Dr. Pea­  
-body. &quot;Think of the moral earthquake  
-and volcano that has burst in the  
-midst of the land, in our own state,  
-since last we met.  
-&quot;Who would have believed that a  
-massacre that reminds one of St.  
-Bartholomew&#x27;s night and of the atroci­  
-ties of the unspeakable Turk in Ar­  
-menia, could occur among our own  
-fellow-citizens in East St. Louis?  
-&quot;But, beware! The peril is nearer  
-than that. The mutterings of the vol­  
-cano are felt in Chicago. The single  
-explosion is not the most significant  
-thing. The race prejudice, contempt  
-and hatred, workingworking be­  
-neaththese are the hell belowand  
-they find some lodgment in all our  
-hearts God help us.  
-&quot;There is far more danger to the  
-republic from race hatred within our  
-borders than from all the Germans  
-put together. i  
-&quot;Christian citizens of Chicago, think  
-MjiiJ^&amp; ?L*r i#b- *&amp; 3k* iJ  
-S  
-this thing through. Try to make up  
-your mind beforehand what you will  
-do and say when the earthquake and  
-the volcano shall be around you. Our  
-country is in dire need of clear heads  
-and stout heartsChristian hearts,  
-both within and without.
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917090801%2F0623.jp2/pct:4.590443,5.417725,25.715437,91.173406/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

@@ -1,7 +1,7 @@
 
 # East_St._Louis_-_The_Appeal_July_21,_1917
 
-### 132 reprints from 1916-05-13 to 1920-11-06
+### 135 reprints from 1916-05-13 to 1920-11-06
 
 ## East_St._Louis_-_The_Appeal_July_21,_1917
 
@@ -125,10 +125,7 @@ working-working be- neath-these are the hell below-and
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
-ement in all our hearts; God help us.  
-  
-The National Evangelistic Alliance of America has appealed to President  
-Wilson that flags on public buildings be at half-mast on Sunday, July  
+buildings be at half-mast on Sunday, July  
 29th, in memory of persons who lost their lives in the East St. Louis  
 riots.  
   
@@ -3285,6 +3282,59 @@ zens.&quot; Tuesday&#x27;s K. C. Star
 
 <table style="width: 100%;"><tr><td style="width: 50%">
 
+hicago, said  
+V. 1  
+QM  
+&#x27;&amp;&quot;  
+tive land, THE APPEAL believes that  
+every American has the right to ex- lings of democracy are being heard,  
+pect every right and privilege ac­  
+corded to every other American. No  
+land is a democracy in which there  
+are two classes of citizens.  
+These are the days that we should  
+feel patriotic. One hundred and forty­  
+one years ago the United States shook  
+off the bonds of Great Britain and be­  
+came independent.  
+The Declaration of Independence  
+states that &quot;all men are created equal  
+and endowed by their creator with cer­  
+tain inalienable rights among which  
+are life, liberty and the pursuit of  
+happiness. After one hundred and  
+forty-one years this ideal has not been  
+realized and our much vaunted de­  
+mocracy is largely a sham, but some  
+progress has been made.  
+We are now at war and it is claimed  
+that we are fighting for world-wide  
+democracy, and in spite of the fact  
+that many forces have been at work  
+in recent years to retard the growth  
+of democracy, THE APPEAL believes  
+that the end of the war will find the  
+United States further advanced in true  
+democracy than may appear possible  
+at the present time, and in spite of it­  
+self.  
+Not only the United States but in  
+the whole world we are about to enter  
+an era- in which the basic principle  
+will be human brotherhood
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917071401%2F0590.jp2/pct:4.358494,68.549485,25.834226,28.663556/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-07-14/ed-1/seq-2)
+
+#### 1917-07-14 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
   
 teer army. Colored men are not per­  
 mitted to enlist and must wait for the  
@@ -4398,6 +4448,79 @@ H. Lewis, Boston, Mass
 
 ---
 
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-04/ed-1/seq-2)
+
+#### 1917-08-04 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+hed in the United States and per-  
+elties and brutalities of foreign con­  
+quest. No tribes of any name, or time  
+have ever outdone the white men and  
+women who burned colored men,  
+women and children the other day in  
+this American city. Nothing more re-  
+a SLttanp
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:12.978272,39.812372,16.691512,28.948826/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-04/ed-1/seq-2)
+
+#### 1917-08-04 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+the hearts of friends.Charles Sumner.  
+haps that accounts for the article  
+The Unitarian church is one of the Louis massacre to the &quot;atrocities of  
+few Christian denominations in Amer- the unspeakable Turk in Armenia.&quot;  
+ica in which there is no color line  
+The orthodox Christian sects in Amer­  
+ica are so filled with prejudice that  
+the ruthless massacre of helpless men,  
+women and children fails to bring out  
+a protest.  
+The article from the Christian Reg  
+ties of war to the ferocities of peace, explosion is not the most significan
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917080401%2F0602.jp2/pct:17.382663,20.508811,24.786556,30.847910/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
+## [From _The Nashville globe._](https://chroniclingamerica.loc.gov/lccn/sn86064259/1917-08-10/ed-1/seq-1)
+
+#### 1917-08-10 &middot; [Nashville, Tenn.](http://dbpedia.org/resource/Nashville%2C_Tennessee)
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+  
+The riot at East St. Louis is one!  
+of the worst blots on the good name  
+of an American community in our  
+whole history. Illinois must bow  
+her head in shame before this dis­  
+grace. We have no excuse. There  
+can be no excuse for such a break­  
+down of the most primitive safe­  
+guards of civil government, for such  
+betrayal of the first duty of ordered  
+society
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/tu_frank_ver01%2Fdata%2Fsn86064259%2F0029602059A%2F1917081001%2F0255.jp2/pct:55.203268,60.164835,11.943202,5.480769/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
+
+---
+
 ## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-11/ed-1/seq-2)
 
 #### 1917-08-11 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
@@ -4446,28 +4569,6 @@ this American city. Nothing more re­
 volting was ever charged against Ne
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
 <img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:17.621046,34.392153,12.738595,22.598980/!600,600/0/default.jpg"/>
-</td>
-</tr></table>
-
----
-
-## [From _The Appeal._](https://chroniclingamerica.loc.gov/lccn/sn83016810/1917-08-11/ed-1/seq-2)
-
-#### 1917-08-11 &middot; [Saint Paul, Minn. ;](http://dbpedia.org/resource/Saint_Paul%2C_Minnesota)
-
-<table style="width: 100%;"><tr><td style="width: 50%">
-
-  
-Memphis than in any other city in  
-proportion to the population.  
-The National Evangelistic Alliance  
-of America has appealed to President  
-Wilson that flags on public buildings  
-be at half-mast on Sunday, July 29th,  
-in memory of persons who lost their  
-lives in the East St. Louis riots
-</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/mnhi_funkley_ver02%2Fdata%2Fsn83016810%2F00280768054%2F1917081101%2F0606.jp2/pct:43.206534,43.772126,12.084292,5.375296/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 

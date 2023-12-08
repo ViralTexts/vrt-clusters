@@ -1,7 +1,7 @@
 
 # Honea_Path,_Willis_Jackson_-_Transcriptions_of_newspaper_articles_of_interest
 
-### 17 reprints from 1911-10-12 to 1911-10-19
+### 18 reprints from 1911-10-12 to 1911-10-19
 
 ## Honea_Path,_Willis_Jackson_-_Transcriptions_of_newspaper_articles_of_interest
 
@@ -143,6 +143,22 @@ as positively said that two other suspects were not the guilty party.
   
 Constable Haynes look the negro in an automobile and hastened to  
 Anderson and the boy J
+</td></tr></table>
+
+---
+
+## Honea_Path,_Willis_Jackson_-_Transcriptions_of_newspaper_articles_of_interest
+
+#### From unknown source
+
+#### None
+
+<table style="width: 100%;"><tr><td style="width: 50%">
+
+  
+The little girl is calm and positive in her identification. She is  
+considerably injured but is up and about the home and came to the piazza  
+when one of the suspects was taken to her. M
 </td></tr></table>
 
 ---
@@ -541,9 +557,14 @@ were not the guilty parties. Con­
   
 siaDie nayes iuuk . ljuc ucgiv ?u cm  
 automobile and hastened toward Anderson.  
-The little girl was
+The little girl was calm and positive  
+in her identification. She is considerably  
+injured, but is up and about  
+the home and came to the piazza  
+whan one of the suspects was taken  
+to her father&#x27;s home.
 </td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
-<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F00295863031%2F1911101901%2F0330.jp2/pct:33.844279,62.849076,18.169034,24.709998/!600,600/0/default.jpg"/>
+<img alt="Page image" src="https://chroniclingamerica.loc.gov/iiif/2/scu_albinoskunk_ver02%2Fdata%2Fsn86063790%2F00295863031%2F1911101901%2F0330.jp2/pct:33.844279,62.849076,19.570618,27.855521/!600,600/0/default.jpg"/>
 </td>
 </tr></table>
 
