@@ -55,7 +55,7 @@ VICKSBURG, September 4.-A diffi- culty occurred at a radical meeting at Clinton,
 
 ---
 
-## From _The New York herald._
+## [From _The New York herald._](https://www.loc.gov/resource/sn83030313/1875-09-05/ed-1/?sp=9)
 
 #### 1875-09-05 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -75,7 +75,10 @@ armed whites from this place and fifty from Edwards
 and Bolton arrived at Clinton this evening to protect  
 the town. The nagroes are reported arming and  
 threatening another fight
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_crowfoot_ver01:data:sn83030313:00271743907:1875090501:0772/pct:2.888007,50.842793,15.580908,7.827848/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -163,7 +166,7 @@ another fight
 
 ---
 
-## From _Memphis daily appeal._
+## [From _Memphis daily appeal._](https://www.loc.gov/resource/sn83045160/1875-09-05/ed-1/?sp=1)
 
 #### 1875-09-05 &middot; [Memphis, Tenn.](http://dbpedia.org/resource/Memphis%2C_Tennessee)
 
@@ -192,11 +195,14 @@ rived at Clinton this evening to protect
 the town. The negroes are reported  
   
 arming, and threaten another fight.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:tu:batch_tu_chet_ver01:data:sn83045160:00200293125:1875090501:0211/pct:50.589879,12.874559,15.569699,6.858836/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Dallas daily herald._
+## [From _The Dallas daily herald._](https://www.loc.gov/resource/sn83025733/1875-09-05/ed-1/?sp=1)
 
 #### 1875-09-05 &middot; [Dallas, Tex.](http://dbpedia.org/resource/Dallas)
 
@@ -220,7 +226,10 @@ Balton arrived at Clinton this evening
 to protect the town. The negroes are  
 reported arming and threatening an­  
 other fight
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:txdn:batch_txdn_bentley_ver01:data:sn83025733:00200297556:1875090501:0128/pct:2.633779,82.961460,12.437291,7.997682/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -234,7 +243,7 @@ other fight
 
 ---
 
-## From _National Republican._
+## [From _National Republican._](https://www.loc.gov/resource/sn86053573/1875-09-06/ed-1/?sp=1)
 
 #### 1875-09-06 &middot; [Washington City (D.C.)](http://dbpedia.org/resource/Washington%2C_D.C.)
 
@@ -254,11 +263,14 @@ fifty armed whites from this place and fifty from
 Edwards and Bolton arrived at Clinton this even­  
 ing to protect the town. The negroes are re­  
 ported arriving and threatening another fight
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_eastern_ver01:data:sn86053573:00294558342:1875090601:0241/pct:60.793261,53.080082,11.056511,4.940965/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1875-09-06/ed-1/?sp=5)
 
 #### 1875-09-06 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -279,7 +291,10 @@ flict. About 150 armed whites from this place and 50
 from Edwards and Bolton arrived at Clinton this even  
 ing, to protect the town. The negroes are reported arm­  
 ing and threatening another flgit
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_inform_ver01:data:sn83030214:00206531228:1875090601:0553/pct:33.813843,56.128345,16.229349,7.827707/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -362,7 +377,7 @@ whites, aud negroes wounded
 
 ---
 
-## From _The daily dispatch._
+## [From _The daily dispatch._](https://www.loc.gov/resource/sn84024738/1875-09-06/ed-1/?sp=1)
 
 #### 1875-09-06 &middot; [Richmond [Va.]](http://dbpedia.org/resource/Richmond%2C_Virginia)
 
@@ -381,7 +396,10 @@ armed whites from here, and fifty from other
 places, arrived at Clinion this morning to  
 protect the towd. The negroes are reported  
 to be arming and threatening another fight
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vi:batch_vi_lauren_ver02:data:sn84024738:00271742095:1875090601:0231/pct:69.471252,30.140845,13.533596,5.570195/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 

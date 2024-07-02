@@ -255,7 +255,7 @@ from Colfax to keep out of the trouble
 
 ---
 
-## From _The New York herald._
+## [From _The New York herald._](https://www.loc.gov/resource/sn83030313/1873-04-15/ed-1/?sp=7)
 
 #### 1873-04-15 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -304,11 +304,14 @@ Sabine, Wiin and Rapidem-Hadnott, the ment
 wa Mlall Leisiature  
 the pincy woods. or senos swrtawn.  
 Judge W. R. Rutland, who arrived here yester
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_houseleek_ver01:data:sn83030313:00271743828:1873041501:0218/pct:75.059835,16.780571,21.186902,20.765281/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The New York herald._
+## [From _The New York herald._](https://www.loc.gov/resource/sn83030313/1873-04-15/ed-1/?sp=7)
 
 #### 1873-04-15 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -344,11 +347,14 @@ been taken off of the boat. The gentlemen who
 took him from the hont stated that they were  
 going to take him to Colfas and make him quiet  
 
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_houseleek_ver01:data:sn83030313:00271743828:1873041501:0218/pct:71.823325,48.862890,25.979112,16.718792/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1873-04-16/ed-1/?sp=1)
 
 #### 1873-04-16 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -379,7 +385,10 @@ who had the marter in hand did not pretend to de
 arned to their homes without going  
 near the Court-  
 this I was advised by friend
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_grass_ver01:data:sn83030214:00206531137:1873041601:0775/pct:82.632961,49.777573,16.081199,11.382114/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -507,7 +516,7 @@ active members of the land from the piney
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1873-04-17/ed-1/?sp=2)
 
 #### 1873-04-17 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -532,7 +541,10 @@ and was a Republican.
 This did not suit the plans of the am-  
 itious Wann, who, being a member of the  
  Kei ono Legislature, learned what wa
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_brown_ver01:data:sn83030272:00206536159:1873041701:0070/pct:0.000000,86.324786,20.443533,9.239611/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -623,7 +635,7 @@ Court-Houso at Colfax, a. small village on th
 
 ---
 
-## From _The Ouachita telegraph._
+## [From _The Ouachita telegraph._](https://www.loc.gov/resource/sn85034336/1873-04-19/ed-1/?sp=4)
 
 #### 1873-04-19 &middot; [Monroe, La.](http://dbpedia.org/resource/Monroe%2C_Louisiana)
 
@@ -679,7 +691,10 @@ pretend to do anything, but quietly re­
 turned to their homes without going  
 near the courthouse, or assembling  
 anywnertd
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:lu:batch_lu_angel_ver01:data:sn85034336:00211101027:1873041901:0746/pct:21.631721,23.396940,15.113141,31.390751/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -751,7 +766,7 @@ The Opelousas Courier, a very excellen
 
 ---
 
-## From _Memphis daily appeal._
+## [From _Memphis daily appeal._](https://www.loc.gov/resource/sn83045160/1873-04-19/ed-1/?sp=1)
 
 #### 1873-04-19 &middot; [Memphis, Tenn.](http://dbpedia.org/resource/Memphis%2C_Tennessee)
 
@@ -796,7 +811,10 @@ Register, Flowers, Brantley, Snowden,
 Raily, Shaw, Green, etc., the assembly  
 was given up. The posse failed to take  
 the building or to 
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:tu:batch_tu_chet_ver01:data:sn83045160:00200293071:1873041901:0436/pct:46.118721,14.408867,9.503425,14.196149/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -886,7 +904,7 @@ the court-bonee, or assembllng anywhere
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1873-04-21/ed-1/?sp=3)
 
 #### 1873-04-21 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -1008,7 +1026,10 @@ gh on Monday, that the negro mob had
 taken it out and buried it. A great many color­  
 hen were in Alexandria, who had run away  
 fron Colfax to keep out of the trouble
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_brown_ver01:data:sn83030272:00206536159:1873042101:0083/pct:1.232428,30.641822,12.863470,42.028986/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -1042,7 +1063,7 @@ fron Colfax to keep out of the trouble
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1873-04-23/ed-1/?sp=3)
 
 #### 1873-04-23 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -1085,7 +1106,10 @@ the few white people who had the matter in
 hand did not pretend to do anything, but qur­  
 etly returned to their iomes without going near  
 the court house, or as embling anywhere. An
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_brown_ver01:data:sn83030272:00206536159:1873042301:0091/pct:15.043562,45.557207,13.184898,13.164933/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 

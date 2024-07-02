@@ -142,7 +142,7 @@ Gov. Ames is doing all within his power to prevent further bloodshed. No Sheriff
 
 ---
 
-## From _The New York herald._
+## [From _The New York herald._](https://www.loc.gov/resource/sn83030313/1875-09-08/ed-1/?sp=7)
 
 #### 1875-09-08 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -195,11 +195,14 @@ of the grounds. At the same time the
 Vicksburg train brought armed men from Edwards and  
 Bolton. On Saturday night 500 armed white  
 men occupied Clinton and there was quite 
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_crowfoot_ver01:data:sn83030313:00271743907:1875090801:0810/pct:80.403111,7.571086,17.449885,20.079175/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The New York herald._
+## [From _The New York herald._](https://www.loc.gov/resource/sn83030313/1875-09-08/ed-1/?sp=7)
 
 #### 1875-09-08 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -221,11 +224,14 @@ the rioters to disperse. The city is full of colored
 refugees, who dare not return to their homes. They ask  
 nothing but protection. Governor Ames is doing all  
 within his power to prevent further bloodshed
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_crowfoot_ver01:data:sn83030313:00271743907:1875090801:0810/pct:80.397634,28.232652,16.502355,5.728750/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _National Republican._
+## [From _National Republican._](https://www.loc.gov/resource/sn86053573/1875-09-08/ed-1/?sp=1)
 
 #### 1875-09-08 &middot; [Washington City (D.C.)](http://dbpedia.org/resource/Washington%2C_D.C.)
 
@@ -256,7 +262,10 @@ not return to their homes. They ask for nothing
 but protection. Gov. Ames is doing all within  
 his power to prevent further bloodshed. No  
 sherin&#x27;s posse is sufficient
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_eastern_ver01:data:sn86053573:00294558342:1875090801:0249/pct:2.642100,65.728835,11.055102,8.847868/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -375,7 +384,7 @@ tulficient.
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1875-09-08/ed-1/?sp=5)
 
 #### 1875-09-08 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -409,7 +418,10 @@ toa walt their return. In about tarce mninutes
 a pistol shot was fired into the crowd, then  
  another, and in a moment apparently fifty shots were  
 fired. The wildest confusion ensued, and the whol
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_inform_ver01:data:sn83030214:00206531228:1875090801:0573/pct:66.363144,40.614387,16.357724,11.123831/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -460,7 +472,7 @@ siuriff- pos-e is sufflcer.t
 
 ---
 
-## From _Gold Hill daily news._
+## [From _Gold Hill daily news._](https://www.loc.gov/resource/sn84022046/1875-09-08/ed-1/?sp=2)
 
 #### 1875-09-08 &middot; [Gold Hill, N.T. [Nev.]](http://dbpedia.org/resource/Gold_Hill%2C_Nevada)
 
@@ -502,11 +514,14 @@ nothing but protection. Governor Amos
 is doing all in his power to pravent fur­  
 ther bloodshed. No Sheriffs posse is  
 sufficient.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nvln:batch_nvln_palisade_ver02:data:sn84022046:00279553846:1875090801:0240/pct:27.719566,9.477810,10.978282,16.187176/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Memphis daily appeal._
+## [From _Memphis daily appeal._](https://www.loc.gov/resource/sn83045160/1875-09-08/ed-1/?sp=1)
 
 #### 1875-09-08 &middot; [Memphis, Tenn.](http://dbpedia.org/resource/Memphis%2C_Tennessee)
 
@@ -550,11 +565,14 @@ ence on the auspicious opening of the
 campaign in the county, expressing the  
 hope that the same good feeling would  
 characterize all their meetings. H
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:tu:batch_tu_chet_ver01:data:sn83045160:00200293125:1875090801:0219/pct:13.983313,20.207905,10.630408,16.700937/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Memphis daily appeal._
+## [From _Memphis daily appeal._](https://www.loc.gov/resource/sn83045160/1875-09-08/ed-1/?sp=1)
 
 #### 1875-09-08 &middot; [Memphis, Tenn.](http://dbpedia.org/resource/Memphis%2C_Tennessee)
 
@@ -623,7 +641,10 @@ to their homes. They ask nothing but
 protection. Governor Ames is doing all  
 within his power to prevent further  
 bloodshed. No sheriff&#x27;s posse is suffi
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:tu:batch_tu_chet_ver01:data:sn83045160:00200293125:1875090801:0219/pct:13.844252,39.079278,10.970334,25.359836/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -903,7 +924,7 @@ Gov. Ames is doing all he can to pre
 
 ---
 
-## From _National Republican._
+## [From _National Republican._](https://www.loc.gov/resource/sn86053573/1875-09-09/ed-1/?sp=1)
 
 #### 1875-09-09 &middot; [Washington City (D.C.)](http://dbpedia.org/resource/Washington%2C_D.C.)
 
@@ -940,11 +961,14 @@ congratulated the audience on the auspicious open­
 ing of the campaign in the county, and expressed  
 a hope that the same good feeling would charac­  
 terize all their meetings. He complimente
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_eastern_ver01:data:sn86053573:00294558342:1875090901:0253/pct:3.139717,28.509333,11.006454,11.557147/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _National Republican._
+## [From _National Republican._](https://www.loc.gov/resource/sn86053573/1875-09-09/ed-1/?sp=1)
 
 #### 1875-09-09 &middot; [Washington City (D.C.)](http://dbpedia.org/resource/Washington%2C_D.C.)
 
@@ -998,7 +1022,10 @@ who dare not return to their homes. They ask
 nothing but protection. Governor Ames is doing  
 all within his power to prevent further bloodshed.  
 No sheriff&#x27;s posse is sufficient. The following i
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_eastern_ver01:data:sn86053573:00294558342:1875090901:0253/pct:3.139717,42.137561,11.023897,15.072871/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -2067,7 +2094,7 @@ shed. No sheriff&#x27;s posse is sufficient.
 
 ---
 
-## From _The Somerset herald._
+## [From _The Somerset herald._](https://www.loc.gov/resource/sn84026409/1875-09-15/ed-1/?sp=2)
 
 #### 1875-09-15 &middot; [Somerset, Pa.](http://dbpedia.org/resource/Somerset%2C_Pennsylvania)
 
@@ -2125,11 +2152,14 @@ spicious opening of the campaign in
 the county, and expressed a hope­  
 that the same good feeling would  
 characterize all their meetings. H
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:pst:batch_pst_grange_ver01:data:sn84026409:00280776476:1875091501:0012/pct:65.337146,4.547569,10.054184,21.004885/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Somerset herald._
+## [From _The Somerset herald._](https://www.loc.gov/resource/sn84026409/1875-09-15/ed-1/?sp=2)
 
 #### 1875-09-15 &middot; [Somerset, Pa.](http://dbpedia.org/resource/Somerset%2C_Pennsylvania)
 
@@ -2199,7 +2229,10 @@ They ask nothing but protection
 Governor Ames is doing all within  
 his power to prevent further blood­  
 shed. No Sheriff&#x27;s poe is sufficient
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:pst:batch_pst_grange_ver01:data:sn84026409:00280776476:1875091501:0012/pct:65.036123,28.460107,10.189645,30.262852/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 

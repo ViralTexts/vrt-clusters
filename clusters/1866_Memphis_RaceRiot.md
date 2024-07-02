@@ -119,7 +119,7 @@ e\er\thing was quiet
 
 ---
 
-## From _Daily Davenport Democrat._
+## [From _Daily Davenport Democrat._](https://www.loc.gov/resource/sn83045646/1866-05-02/ed-1/?sp=4)
 
 #### 1866-05-02 &middot; [Davenport, Iowa](http://dbpedia.org/resource/Davenport%2C_Iowa)
 
@@ -139,7 +139,10 @@ One policeman killed and fear wounded,
 Eight or ten negroes wers killed and several  
 wounded. The 16th legular Intantry were  
 finally called out and af 10 oclock every.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:iahi:batch_iahi_hypno_ver01:data:sn83045646:00279528591:1866050201:0329/pct:27.369638,73.194508,10.911651,4.805796/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -163,7 +166,7 @@ ed out and at 10 o&#x27;clock everything wasquiet.
 
 ---
 
-## From _Cleveland daily leader._
+## [From _Cleveland daily leader._](https://www.loc.gov/resource/sn85042437/1866-05-02/ed-1/?sp=1)
 
 #### 1866-05-02 &middot; [[Cleveland, Ohio]](http://dbpedia.org/resource/Cleveland)
 
@@ -193,11 +196,14 @@ liceman was killed and three wounded,
 and eight or ten negroes killed and several  
 wounded. The 16th regular Infantry were  
 finally called up and at ten o&#x27;clock ever
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:ohi:batch_ohi_desdemona_ver01:data:sn85042437:00280775551:1866050201:0212/pct:44.360515,50.594916,11.124464,6.922661/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Daily empire._
+## [From _The Daily empire._](https://www.loc.gov/resource/sn88077244/1866-05-02/ed-1/?sp=3)
 
 #### 1866-05-02 &middot; [Dayton, Ohio](http://dbpedia.org/resource/Dayton%2C_Ohio)
 
@@ -236,7 +242,10 @@ wounded.
 The Sixteenth Regular Infantry were  
 finally called out, and at ten o&#x27;clock every  
 thing was quiet
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:ohi:batch_ohi_horatio_ver01:data:sn88077244:00280775071:1866050201:1163/pct:64.889529,71.117901,14.697406,15.168943/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -354,7 +363,7 @@ was quiet
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1866-05-03/ed-1/?sp=5)
 
 #### 1866-05-03 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -377,11 +386,14 @@ Eight to ten negroes were killed and s
 The f6th United States Rogular Infantry were finally  
 called out to restore order, and at 10 o&#x27;clock ever  
 was quie
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_delphi_ver02:data:sn83030214:00206530832:1866050301:0027/pct:34.054500,18.699282,16.190476,8.813823/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The national Republican._
+## [From _The national Republican._](https://www.loc.gov/resource/sn86053571/1866-05-03/ed-1/?sp=3)
 
 #### 1866-05-03 &middot; [Washington City [D.C.]](http://dbpedia.org/resource/Washington%2C_D.C.)
 
@@ -399,11 +411,14 @@ One policeman was atlled, three weunase, any
 eight or ten negroes were killed and several wound­  
 ed. The 16th regular infantry were finally called  
 out, and at ten o&#x27;clock everything was quiet
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_hawaiian_ver01:data:sn86053571:00237288968:1866050301:0434/pct:28.973660,41.307551,12.170754,5.635359/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The daily Gate City._
+## [From _The daily Gate City._](https://www.loc.gov/resource/sn83025182/1866-05-03/ed-1/?sp=1)
 
 #### 1866-05-03 &middot; [Keokuk, Iowa](http://dbpedia.org/resource/Keokuk%2C_Iowa)
 
@@ -439,11 +454,14 @@ liceman and ten negroes killed, and a num-­
 ber wounded. The sixteenth regulars were  
 called out, and at 10 o&#x27; clock, everything was  
 quiet.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:iahi:batch_iahi_jigglypuff_ver01:data:sn83025182:00279528359:1866050301:0158/pct:43.307292,33.536749,12.421875,11.752063/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Plymouth weekly Democrat._
+## [From _The Plymouth weekly Democrat._](https://www.loc.gov/resource/sn87056248/1866-05-03/ed-1/?sp=2)
 
 #### 1866-05-03 &middot; [Plymouth, Ind.](http://dbpedia.org/resource/Plymouth%2C_Indiana)
 
@@ -459,11 +477,14 @@ killed. Seven have been seen lying dead.
 The rict originated from a fuss between a  
 eee o ee e oo eee o ee o oe  
 women on atsey sreet put their hea
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:in:batch_in_dillinger_ver02:data:sn87056248:0020029564A:1866050301:0287/pct:58.557500,15.189418,13.132856,20.885449/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Plymouth weekly Democrat._
+## [From _The Plymouth weekly Democrat._](https://www.loc.gov/resource/sn87056248/1866-05-03/ed-1/?sp=2)
 
 #### 1866-05-03 &middot; [Plymouth, Ind.](http://dbpedia.org/resource/Plymouth%2C_Indiana)
 
@@ -487,7 +508,10 @@ promenade the streets for some time to
 oe e td toa o eoo o  
 ee  e   
 t o eGm
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:in:batch_in_dillinger_ver02:data:sn87056248:0020029564A:1866050301:0287/pct:58.663221,37.298659,13.121109,6.901827/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -517,7 +541,7 @@ at 10 o&#x27;clock everything was quiet
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1866-05-03/ed-1/?sp=1)
 
 #### 1866-05-03 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -536,11 +560,14 @@ and three wounded. Eight to ten negroes were
 killed and several wounded. The Sixteenth United  
 States regular infantry were called out to restore  
 order, and at ten o&#x27;clock everything was quiet
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_brown_ver01:data:sn83030272:0020653607A:1866050301:0421/pct:20.282747,67.933579,18.176572,6.734317/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Daily Ohio statesman._
+## [From _Daily Ohio statesman._](https://www.loc.gov/resource/sn84028645/1866-05-03/ed-1/?sp=3)
 
 #### 1866-05-03 &middot; [Columbus, Ohio](http://dbpedia.org/resource/Columbus%2C_Ohio)
 
@@ -599,11 +626,14 @@ consisted of over 150 negroes, all armed
 with minnie rifles.  
   
 SECOND DISPATCH.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:ohi:batch_ohi_lysander_ver01:data:sn84028645:00280774728:1866050301:0534/pct:56.949635,5.821288,12.511123,21.471748/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Daily Ohio statesman._
+## [From _Daily Ohio statesman._](https://www.loc.gov/resource/sn84028645/1866-05-03/ed-1/?sp=3)
 
 #### 1866-05-03 &middot; [Columbus, Ohio](http://dbpedia.org/resource/Columbus%2C_Ohio)
 
@@ -636,7 +666,10 @@ streets. Some negro shanties in the sub­
 urbs are reported on fire. The negroes are  
 seeking refuge at the fort. Another white  
 man is reported killed by a negro. In al
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:ohi:batch_ohi_lysander_ver01:data:sn84028645:00280774728:1866050301:0534/pct:56.967432,27.371879,12.386546,11.616294/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -761,7 +794,7 @@ house
 
 ---
 
-## From _The Nashville daily union._
+## [From _The Nashville daily union._](https://www.loc.gov/resource/sn83025718/1866-05-03/ed-1/?sp=2)
 
 #### 1866-05-03 &middot; [Nashville, Tenn.](http://dbpedia.org/resource/Nashville%2C_Tennessee)
 
@@ -852,7 +885,10 @@ promenade the streets for days to come.
 None of the negroes have as yet been  
 arrested. Two are lying dead in the  
 station-house
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:tu:batch_tu_grady_ver01:data:sn83025718:00200293812:1866050301:0422/pct:32.058946,5.811881,10.746559,34.544554/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -895,7 +931,7 @@ ed. The Sixteenth Regular Infantry quelle
 
 ---
 
-## From _The daily dispatch._
+## [From _The daily dispatch._](https://www.loc.gov/resource/sn84024738/1866-05-03/ed-1/?sp=3)
 
 #### 1866-05-03 &middot; [Richmond [Va.]](http://dbpedia.org/resource/Richmond%2C_Virginia)
 
@@ -912,7 +948,10 @@ hundred and fifty negroes. One police.­
 man was killed and three wounded. Eight  
 or ten negroes were killed and several  
 wounded. The Sixteenth regular infantr
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vi:batch_vi_kors_ver02:data:sn84024738:0027174190A:1866050301:0408/pct:43.211541,29.305772,14.008359,5.957499/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -981,7 +1020,7 @@ The 16th regulars were finally called out
 
 ---
 
-## From _Burlington weekly free press._
+## [From _Burlington weekly free press._](https://www.loc.gov/resource/sn86072143/1866-05-04/ed-1/?sp=3)
 
 #### 1866-05-04 &middot; [Burlington, Vt.](http://dbpedia.org/resource/Burlington%2C_Vermont)
 
@@ -1004,11 +1043,14 @@ ten negroes were killed and several wounded.
 The 17th U. S. regulars were finally called  
 out to restore order, and at 10 o&#x27;clock, ev­  
 erything was quiet
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vtu:batch_vtu_burlington_ver01:data:sn86072143:00280777018:1866050401:0280/pct:25.563258,56.333771,10.901213,7.858081/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Vermont transcript._
+## [From _The Vermont transcript._](https://www.loc.gov/resource/sn84023246/1866-05-04/ed-1/?sp=2)
 
 #### 1866-05-04 &middot; [St. Albans, Vt.](http://dbpedia.org/resource/St._Albans_(town)%2C_Vermont)
 
@@ -1043,11 +1085,14 @@ several wounded.
 The 17th U. S. regulars were finally  
 called out to restore order, and at 1  
 o&#x27;clock everything was quiet.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vtu:batch_vtu_foxville_ver01:data:sn84023246:00280777511:1866050401:0428/pct:55.174282,46.527778,17.139245,14.543269/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Vermont watchman and State journal._
+## [From _Vermont watchman and State journal._](https://www.loc.gov/resource/sn84023200/1866-05-04/ed-1/?sp=2)
 
 #### 1866-05-04 &middot; [Montpelier, Vt.](http://dbpedia.org/resource/Montpelier%2C_Vermont)
 
@@ -1072,7 +1117,10 @@ whom the negroes determined to protect,
 One policeman killed and three wounded.  
 Eight to ten negroes killed and several  
 wounded. The 4th regular infantry restore
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vtu:batch_vtu_graniteville_ver01:data:sn84023200:00280777651:1866050401:0077/pct:81.709469,80.194903,12.585767,8.950525/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -1142,7 +1190,7 @@ everything was quiet
 
 ---
 
-## From _The tri-weekly news._
+## [From _The tri-weekly news._](https://www.loc.gov/resource/sn84026922/1866-05-05/ed-1/?sp=2)
 
 #### 1866-05-05 &middot; [Winnsboro, S.C.](http://dbpedia.org/resource/Winnsboro%2C_South_Carolina)
 
@@ -1162,11 +1210,14 @@ ly quicted by the 16th Regiment of
 Infantry. Once policeman was loilled,  
 hree wounded. Eight or ten negroes  
 were killed and several wounded
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:scu:batch_scu_ettabaker_ver02:data:sn84026922:00237288154:1866050501:0421/pct:79.839051,35.150887,18.706763,11.863486/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The home journal._
+## [From _The home journal._](https://www.loc.gov/resource/sn95068565/1866-05-05/ed-1/?sp=2)
 
 #### 1866-05-05 &middot; [Winchester, Tenn.](http://dbpedia.org/resource/Winchester%2C_Tennessee)
 
@@ -1273,7 +1324,10 @@ It is said that two white men wer
 in with the negroes, and  
 t WI  
 ut
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:tu:batch_tu_arthur_ver01:data:sn95068565:00212470491:1866050501:0057/pct:31.020248,8.233299,25.574995,39.235386/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 

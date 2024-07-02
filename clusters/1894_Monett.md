@@ -43,7 +43,7 @@ bound train, which was stopped by the mob
 
 ---
 
-## From _The evening world._
+## [From _The evening world._](https://www.loc.gov/resource/sn83030193/1894-06-29/ed-1/?sp=2)
 
 #### 1894-06-29 &middot; [New York, N.Y.](http://dbpedia.org/resource/New_York_City)
 
@@ -79,11 +79,14 @@ place June 20, and was being taken to Cass
 ville Jail for safe-keeping. The sheriff and  
 prisoner were on the south-bound train, which  
 was stopped by the mob.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_kobayashi_ver01:data:sn83030193:00206535246:1894062901:0122/pct:49.642723,33.739381,11.282437,11.716621/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The evening world._
+## [From _The evening world._](https://www.loc.gov/resource/sn83030193/1894-06-29/ed-2/?sp=2)
 
 #### 1894-06-29 &middot; [New York, N.Y.](http://dbpedia.org/resource/New_York_City)
 
@@ -120,11 +123,14 @@ place June 20, and was being taken to Cass­
 ville Jail for safe-keeping. The Sheriff and  
 prisoner were on the south-bound train, which  
 was stopped by the mo
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_kobayashi_ver01:data:sn83030193:00206535246:1894062902:0134/pct:61.901155,30.599935,11.569778,13.938702/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The evening world._
+## [From _The evening world._](https://www.loc.gov/resource/sn83030193/1894-06-29/ed-3/?sp=2)
 
 #### 1894-06-29 &middot; [New York, N.Y.](http://dbpedia.org/resource/New_York_City)
 
@@ -162,11 +168,14 @@ place June 20, and was being taken to Cass­
 ville Jail for safe-keeping. The Sheriff and  
 prisoner were on the south-bound train, which  
 was stopped by the mob.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_kobayashi_ver01:data:sn83030193:00206535246:1894062903:0142/pct:61.956925,29.585224,11.139993,13.869086/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The evening world._
+## [From _The evening world._](https://www.loc.gov/resource/sn83030193/1894-06-29/ed-4/?sp=2)
 
 #### 1894-06-29 &middot; [New York, N.Y.](http://dbpedia.org/resource/New_York_City)
 
@@ -203,11 +212,14 @@ place June 20, and was being taken to Cass­
 ville Jail for safe-keeping. The Sheriff and  
 prisoner were on the south-bound train, which  
 was stopped by the mo
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_kobayashi_ver01:data:sn83030193:00206535246:1894062904:0150/pct:64.450652,31.061961,11.210428,13.969751/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Deseret evening news._
+## [From _Deseret evening news._](https://www.loc.gov/resource/sn83045555/1894-06-29/ed-1/?sp=3)
 
 #### 1894-06-29 &middot; [Great Salt Lake City [Utah]](http://dbpedia.org/resource/Salt_Lake_City)
 
@@ -226,7 +238,10 @@ being taken to Casaville jail for safe
 keeping. The sherifl and prisoner  
 were on the southbound train which  
 was stopped by the mo
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:uuml:batch_uuml_hornacek_ver01:data:sn83045555:206539756:1894062901:0214/pct:2.369302,31.359019,12.464589,5.846272/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -315,7 +330,7 @@ train which was stopped by the mob.
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1894-06-30/ed-1/?sp=1)
 
 #### 1894-06-30 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -330,7 +345,10 @@ a moh. Hayden was arrested for shooting Dotr
 akeman, at this place, on June 4.  
 and was heing taken to Cassviile sall for  
 keeping. The sheriff and prisoner were on th
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_nash_ver01:data:sn83030214:00175038711:1894063001:0855/pct:34.092115,93.192982,15.509923,3.213296/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -380,7 +398,7 @@ o&#x27;clock last night by a mob
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1894-06-30/ed-1/?sp=7)
 
 #### 1894-06-30 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -398,7 +416,10 @@ place on June 20, and was being taken to Cass-
 ville jail for safe keoping. The Sheriff and  
 prisoner were on the south-bound train, which  
 was stopped by the mob.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_stein_ver01:data:sn83030272:00175045144:1894063001:0591/pct:68.863767,76.097561,12.856869,4.100610/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -687,7 +708,7 @@ stopped by the mob
 
 ---
 
-## From _The Hickman courier._
+## [From _The Hickman courier._](https://www.loc.gov/resource/sn85052141/1894-07-06/ed-1/?sp=1)
 
 #### 1894-07-06 &middot; [Hickman, Ky.](http://dbpedia.org/resource/Hickman%2C_Kentucky)
 
@@ -706,7 +727,10 @@ jail for safe keeping. The
 sherilf and prisoner were on the south  
 bound train, which was stopped by the  
 mob
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:kyu:batch_kyu_fargo_ver01:data:sn85052141:0020653378A:1894070601:0339/pct:28.114478,46.071120,10.521886,4.930359/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 

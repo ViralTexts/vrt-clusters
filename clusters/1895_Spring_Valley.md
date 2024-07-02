@@ -417,7 +417,7 @@ eral naticnal anthems
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1895-08-05/ed-1/?sp=1)
 
 #### 1895-08-05 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -432,11 +432,14 @@ or driving them out of the city limits.
 The following negroes were serlously injured:  
 Granville Lewis, aged forty-five, shot in head  
 and clubbed with rifles, and face and nec
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_jaguar_ver01:data:sn83030214:00175038814:1895080501:0527/pct:65.914746,59.258847,16.022936,4.377179/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1895-08-05/ed-1/?sp=1)
 
 #### 1895-08-05 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -467,7 +470,10 @@ thhad armhs the mob had brought with them,
 The women were insulted, slapped and two of  
 them, while begging for mercy, were shot down  
 and fatally injured
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_jaguar_ver01:data:sn83030214:00175038814:1895080501:0527/pct:65.043817,73.922398,16.904685,10.275243/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -631,7 +637,7 @@ down and fatally injured
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1895-08-05/ed-1/?sp=1)
 
 #### 1895-08-05 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -664,7 +670,10 @@ brought with them
 The women were insulted, slapped and two of  
 them while begging for mercy, were shot down  
 and fatally injured. Sheriff Clark of Princeto
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_erinna_ver01:data:sn83030272:00175042817:1895080501:0816/pct:81.816907,72.793672,16.532635,12.518922/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -993,7 +1002,7 @@ day bloodshed cannot be averted
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1895-08-06/ed-1/?sp=1)
 
 #### 1895-08-06 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -1018,7 +1027,10 @@ and if the belligerent parties attempt to carry out
 their resolutions adopted to-day bloodshed cannot  
 be averted. It has been impossible to find the fol­  
 lowing negroes in addition to those reported injure
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_jaguar_ver01:data:sn83030214:00175038814:1895080601:0537/pct:17.007576,11.403509,16.277056,8.882967/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -1160,7 +1172,7 @@ down and fatally injured
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1895-08-06/ed-1/?sp=2)
 
 #### 1895-08-06 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -1182,7 +1194,10 @@ tion was adopted giving the remnant of the
 negroes left until b o&#x27;clock to-morrow evening  
 in which to leave the city and to carry off their  
 effects
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_erinna_ver01:data:sn83030272:00175042817:1895080601:0827/pct:42.698352,72.597035,12.821004,5.749542/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -1912,7 +1927,7 @@ the Mayor for assistanco
 
 ---
 
-## From _New-York tribune._
+## [From _New-York tribune._](https://www.loc.gov/resource/sn83030214/1895-08-07/ed-1/?sp=1)
 
 #### 1895-08-07 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -1961,7 +1976,10 @@ Persons influenced by the lawless element at
 Spring Valley have caused statements to be sent  
 out that only one negro was shot in the rlot of  
 Sunday, but this is dented by the county officlals
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:dlc:batch_dlc_jaguar_ver01:data:sn83030214:00175038814:1895080701:0549/pct:33.501492,31.493090,16.278817,17.167052/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -2323,7 +2341,7 @@ pointed te go there. Anether meetin
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1895-08-07/ed-1/?sp=1)
 
 #### 1895-08-07 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -2343,11 +2361,14 @@ Mayor Martin Deimargo, an Italian, and sev
 eral Italian members of the police force were  
 on the ground to see, as the Mayor expressed it,  
 that the negroes &quot;got away peaceably,&quot; bu
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_erinna_ver01:data:sn83030272:00175042817:1895080701:0836/pct:15.364188,29.930430,12.689681,6.378554/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The sun._
+## [From _The sun._](https://www.loc.gov/resource/sn83030272/1895-08-07/ed-1/?sp=1)
 
 #### 1895-08-07 &middot; [New York [N.Y.]](http://dbpedia.org/resource/New_York_City)
 
@@ -2365,7 +2386,10 @@ jutant-General, and George Schilling. Seere
 tary of the State Bureau of Labor Statistics, to  
 Spring Valley to thoroughly investigate the  
 situation and report to hi
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:nn:batch_nn_erinna_ver01:data:sn83030272:00175042817:1895080701:0836/pct:15.326252,45.069570,12.632777,4.004083/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -2498,7 +2522,7 @@ shot down and fatally injured. Sheriff
 
 ---
 
-## From _Fort Worth gazette._
+## [From _Fort Worth gazette._](https://www.loc.gov/resource/sn86071158/1895-08-07/ed-1/?sp=3)
 
 #### 1895-08-07 &middot; [Fort Worth, Tex.](http://dbpedia.org/resource/Fort_Worth%2C_Texas)
 
@@ -2526,11 +2550,14 @@ reply to the demand, with the hope for
 an early resumption of work, when th  
 present acute but wrong ill feeling of  
 the Italian miners subside
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:txdn:batch_txdn_india_ver02:data:sn86071158:0020653638A:1895080701:0645/pct:82.081575,34.372419,12.798875,8.278282/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The times._
+## [From _The times._](https://www.loc.gov/resource/sn85034438/1895-08-07/ed-1/?sp=1)
 
 #### 1895-08-07 &middot; [Richmond, Va.](http://dbpedia.org/resource/Richmond%2C_Virginia)
 
@@ -2549,11 +2576,14 @@ cured, they propose to march to
 Valley, occupy their homes, and r  
 their employment with the coal com  
 pany. Many of the negroes have famn
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vi:batch_vi_whitesnake_ver01:data:sn85034438:00175049307:1895080701:0255/pct:28.899554,83.066060,13.769855,5.321525/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The times._
+## [From _The times._](https://www.loc.gov/resource/sn85034438/1895-08-07/ed-1/?sp=1)
 
 #### 1895-08-07 &middot; [Richmond, Va.](http://dbpedia.org/resource/Richmond%2C_Virginia)
 
@@ -2574,7 +2604,10 @@ CHICAGO, ILL., Aug. 6.In respe
 a call to arms addressed to the  
 people of Chicago, over 20 negroes a­  
 ed at 500 State stre
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vi:batch_vi_whitesnake_ver01:data:sn85034438:00175049307:1895080701:0255/pct:28.950977,88.100367,13.695578,6.334769/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -2769,7 +2802,7 @@ shot down and fatally injured
 
 ---
 
-## From _Oxford eagle._
+## [From _Oxford eagle._](https://www.loc.gov/resource/sn87065469/1895-08-08/ed-1/?sp=1)
 
 #### 1895-08-08 &middot; [Oxford, Lafayette Co., Miss.](http://dbpedia.org/resource/Oxford%2C_Mississippi)
 
@@ -2785,7 +2818,10 @@ ously injured.
 The monthly statement prepared by  
 the director of the mint shows that dur­  
 ing July the total coinage of the Unite
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:msar:batch_msar_diamond_ver01:data:sn87065469:00383344037:1895080801:1324/pct:24.277457,82.543898,10.907913,4.282869/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -2807,7 +2843,7 @@ down and fatally injured. Sheriff Clar
 
 ---
 
-## From _Burlington weekly free press._
+## [From _Burlington weekly free press._](https://www.loc.gov/resource/sn86072143/1895-08-08/ed-1/?sp=8)
 
 #### 1895-08-08 &middot; [Burlington, Vt.](http://dbpedia.org/resource/Burlington%2C_Vermont)
 
@@ -2825,11 +2861,14 @@ the city limits. Tha following negroes
 were seriously injured: Granville Lewis,  
 aged 45, shot in the head, face and neck,  
 may die. Clem Martin, aged 32, shot i
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vtu:batch_vtu_burlington_ver01:data:sn86072143:00280777110:1895080801:1007/pct:31.326265,17.363572,13.022605,5.811481/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _Burlington weekly free press._
+## [From _Burlington weekly free press._](https://www.loc.gov/resource/sn86072143/1895-08-08/ed-1/?sp=8)
 
 #### 1895-08-08 &middot; [Burlington, Vt.](http://dbpedia.org/resource/Burlington%2C_Vermont)
 
@@ -2863,7 +2902,10 @@ arms the mob had brought with them.
 The women were insulted, slapped, and  
 two of them, while begging for mercy,  
 were shot down and fatally injured
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vtu:batch_vtu_burlington_ver01:data:sn86072143:00280777110:1895080801:1007/pct:30.886177,33.649894,13.322665,11.211906/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -2973,7 +3015,7 @@ the shafts by Italians armed wit
 
 ---
 
-## From _The Hickman courier._
+## [From _The Hickman courier._](https://www.loc.gov/resource/sn85052141/1895-08-09/ed-1/?sp=1)
 
 #### 1895-08-09 &middot; [Hickman, Ky.](http://dbpedia.org/resource/Hickman%2C_Kentucky)
 
@@ -2989,11 +3031,14 @@ njured:
 Granville Lewis, aged 45 years, shot  
 n head and clubbed with rifles, and  
 &#x27;ace and neck badly lacerated, ma
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:kyu:batch_kyu_fargo_ver01:data:sn85052141:0020653378A:1895080901:0540/pct:17.301906,20.637432,10.280843,3.942780/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Hickman courier._
+## [From _The Hickman courier._](https://www.loc.gov/resource/sn85052141/1895-08-09/ed-1/?sp=1)
 
 #### 1895-08-09 &middot; [Hickman, Ky.](http://dbpedia.org/resource/Hickman%2C_Kentucky)
 
@@ -3048,11 +3093,14 @@ The womnen were insuifed, slapped
 and two of them while begging for  
 mercy were shot down and fatally  
 injured. Sheriff Clark, of Prineeton
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:kyu:batch_kyu_fargo_ver01:data:sn85052141:0020653378A:1895080901:0540/pct:17.168171,37.458021,10.498161,14.463317/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Hickman courier._
+## [From _The Hickman courier._](https://www.loc.gov/resource/sn85052141/1895-08-09/ed-1/?sp=1)
 
 #### 1895-08-09 &middot; [Hickman, Ky.](http://dbpedia.org/resource/Hickman%2C_Kentucky)
 
@@ -3078,7 +3126,10 @@ both sides engaged in the bloody
 riots of Sunday were  
 their men ? and prepar  
 for further display of force. Th
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:kyu:batch_kyu_fargo_ver01:data:sn85052141:0020653378A:1895080901:0540/pct:28.084253,15.083312,10.397860,8.476492/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
@@ -4154,7 +4205,7 @@ meeting to see that tho negroes wer
 
 ---
 
-## From _Burlington weekly free press._
+## [From _Burlington weekly free press._](https://www.loc.gov/resource/sn86072143/1895-08-15/ed-1/?sp=12)
 
 #### 1895-08-15 &middot; [Burlington, Vt.](http://dbpedia.org/resource/Burlington%2C_Vermont)
 
@@ -4222,11 +4273,14 @@ Seatonville are six bearing shot wounds
 and four who are laid up with bruised  
 heads from the clubbings they received  
 Sunday.
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:vtu:batch_vtu_burlington_ver01:data:sn86072143:00280777110:1895081501:1023/pct:46.007383,6.972140,12.745289,25.427804/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
-## From _The Langston City herald._
+## [From _The Langston City herald._](https://www.loc.gov/resource/sn83025050/1895-08-17/ed-1/?sp=1)
 
 #### 1895-08-17 &middot; [Langston City, O.T. [Okla.]](http://dbpedia.org/resource/Guthrie%2C_Oklahoma)
 
@@ -4271,7 +4325,10 @@ a reply to the demand and with the
 hope of resumption of work when the  
 present acute, but wrong and direct  
 ill fee&#x27;ing of the Italian miners sub
-</td></tr></table>
+</td><td style="width: 50%; max-height: 75%; margin: auto; display: block;">
+<img alt="Page image" src="https://tile.loc.gov/image-services/iiif/service:ndnp:okhi:batch_okhi_beaver_ver01:data:sn83025050:00237281470:1895081701:0094/pct:28.705062,36.554450,12.619222,21.534687/!600,600/0/default.jpg"/>
+</td>
+</tr></table>
 
 ---
 
